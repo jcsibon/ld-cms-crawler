@@ -1,0 +1,7 @@
+## L’évier de cuisine se fond dans le décor, ou se démarque !
+N’hésitez pas à revisiter les standards avec une cuve ronde (Luisina) ou un évier de cuisine en angle. Jouez sur les matières : pierre reconstituée ([**Tamtam**](/evier-a-encastrer-tamtam-materiau-de-synthese-FPC3027500)), céramique (Onde), inox satiné ([**Caruso**](/evier-a-encastrer-caruso-inox-FPC3024060)) ou même verre trempé ([**Glasix**](/evier-a-encastrer-glasix-inox-et-verre-FPC3024320)). Les familles nombreuses privilégient un évier double cuve (Cymbale) tandis qu’un modèle un bac et demi (MX Evolution) suffit dans une kitchenette.
+![desktop_leseviersdecuisine_evierfusionstyl_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300212485/desktop_leseviersdecuisine_evierfusionstyl_p1.jpg)
+##
+## Évier de cuisine encastré, affleurant ou bassin sous plan
+Les couleurs et le format ne sont pas les seuls leviers à votre disposition pour singulariser votre évier. La pose aussi ! Lapeyre vous propose des modèles à encastrer (Pure), mais aussi à intégrer. Nos usines assurent dans ce cas un montage par intégration à fleur de plan : le rendu est lisse et sans aspérité.
+Pour une transition invisible entre votre évier et votre plan de travail, comptez sur le bassin sous plan Cuadra monté en usine : l’idéal esthétique rejoint alors celui de l’entretien !

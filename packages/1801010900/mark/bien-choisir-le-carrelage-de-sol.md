@@ -1,0 +1,12 @@
+##
+**Pour votre revêtement de sol, vous privilégiez la facilité d’entretien et un large choix de décors ? Le carrelage est la solution qu’il vous faut ! Avant de choisir, petit tour d’horizon sur les finitions, la résistance, les qualités et le type de pose qui s’offrent à vous.**
+**![carrelage sol 1](http://www.lapeyre.fr/img/contrib/326fe2b011800702/201619223.jpg)**
+##  Les différents types de[carrelage](https://www.lapeyre.fr/sols-murs-CCU0007/carrelages-CCN0087) de sol
+Qu’il s’agisse d’un carrelage destiné pour l’extérieur ou l’intérieur de votre maison, son choix sera bien évidemment différent. Pour l’extérieur, le choix d’un carrelage pour une terrasse, ne sera pas le même que pour celui d’un garage ou d’un bord de piscine. Bien qu’ils soient pensés pour résister aux intempéries, ils doivent également posséder un coefficient antiglisse pour éviter les incidents lorsqu’ils sont mouillés.
+Le classement « antidérapant » est noté de A à C. C’est le carrelage indiqué pour un usage pieds nus en milieu humide, comme la piscine et le[bac à douche](https://www.lapeyre.fr/bain-CCU0002/douche-CCN0029/bacs-douche-CCN0124). Le classement « antiglissant » est noté de R9 à R13, et correspond à l’utilisation d’une surface carrelée avec des chaussures. Quant aux classements supérieurs à R11, il s’agit de carrelages destinés à un usage industriel.
+##  Comment les poser ?
+Côté pose, rien de plus simple. Mesurez, découpez, collez ! Assurez-vous que votre support soit bien droit, sec et normalement poreux afin que la colle et les carreaux adhèrent au mieux. Ensuite, selon les dimensions de votre pièce et de son aménagement, définissez le point de départ de votre pose de carrelage : du milieu de la pièce ou le long du mur du fond ? Il s’agit là d’un choix esthétique. Enfin, sachez anticiper les coupes. On les préfère le long du mur, plutôt qu’en plein milieu du salon…
+Autre possibilité grâce au « système clic » Lapeyre de carrelage réutilisable en grès cérame émaillé, oubliez la colle, le joint, les temps de séchage... Il suffit d’emboîter les carreaux.
+![carrelage sol 2](http://www.lapeyre.fr/img/contrib/326fe2b01180070b/201722405.jpg)
+##  Un revêtement de sol, pléthores de possibilités
+Dehors ou dedans, le style est important ! Classiques, unis, à imprimés, façon béton, carreaux de ciment, et même parquet…. Les possibilités sont quasi infinies !

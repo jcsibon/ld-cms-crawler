@@ -1,0 +1,14 @@
+##
+Avec le temps, un [**escalier**](https://www.lapeyre.fr/escaliers-CCU0006) en bois perd de sa splendeur. Perte d’éclat, encrassement, taches ou encore rayures… Quelle que soit l’essence utilisée, il s’use et l’on s’en aperçoit souvent bien trop tard. Au point qu’il faille entièrement le poncer ou le décaper pour le rattraper avant de le peindre. Dépoussiérer, poncer, détacher, cirer… Voici quelques astuces à faire régulièrement pour que son escalier en bois reste comme neuf d’année en année.
+##
+Dépoussiérer et nettoyer
+Le premier réflexe à adopter est de dépoussiérer régulièrement son escalier à l’aide d’un chiffon doux et sec. Faites l’impasse sur les bombes dépoussiérantes. Idéales pour les meubles en bois, elles sont déconseillées pour les escaliers. En effet, elles risqueraient d’encrasser vos marches, plus que de les nettoyer et les rendre collantes. De la même manière, évitez de le nettoyer à grandes eaux, le bois brut n’est pas vraiment adapté. Vous risquerez de le tacher et de l’abîmer. Seuls les escaliers en bois vernis ou vitrifié le permettent. Attention toutefois à utiliser un chiffon humide et non trempé.
+##
+Combler les petits trous
+Au fil du temps, des fissures ou des petits trous peuvent apparaître. Pas de panique, c’est normal. Le bois est une matière vivante qui réagit et évolue. Tant qu’elles restent petites, ces imperfections peuvent être corrigées et rebouchées à l’aide d’une pâte à bois. Avant d’intervenir, veillez à ce que votre bois soit mis à nu en le ponçant. N’oubliez pas de nettoyer la poussière. Avec la pâte à bois de la couleur de vos marches, vous n’aurez plus qu’à remplir les trous, laisser sécher et poncer légèrement pour effacer les aspérités et lisser la surface.
+##
+Retirer les taches
+Pas facile d’éliminer une tache. Si vous êtes tenté d’utiliser un produit détachant, oubliez tout de suite l’idée. Vous risquerez d’aggraver le problème. Essayez de l’éliminer en ponçant légèrement la zone concernée. Si la tâche est superflue, elle partira facilement. Sachez qu’il vaut mieux prévenir que guérir. Pensez à protéger votre escalier dès qu’il sera installé.
+##
+Cirer ou vernir
+Pour lui redonner de l’éclat, on pense à cirer ou vernir son escalier. Avec un escalier en bois brut, on opte pour une cire de la même couleur que le bois et antidérapante pour éviter tout accident. En revanche, s’il est déjà verni, l’entretien se fera à l’aide… d’un vernis. Répétez l’opération de temps en temps, plus il y aura de couche, plus il sera résistant aux chocs ! Enfin sachez qu’il existe des kits de rénovation des marches disponibles chez Lapeyre.

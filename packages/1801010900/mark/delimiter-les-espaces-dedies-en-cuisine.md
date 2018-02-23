@@ -1,0 +1,9 @@
+## Des rangements adaptés à chaque ustensile de cuisine
+Rangez vos poêles et autres casseroles à portée de main, grâce au meuble range-casseroles et à ses deux tiroirs métalliques, idéalement disposé sous les plaques de l’îlot de cuisson.
+Tous les ingrédients nécessaires sont regroupés au même endroit. Pour avoir les épices et les condiments à la vue, utilisez un seul panier saveur coulissant, qui est une solution gain de place. Une colonne réserve permet aussi une grande capacité de stockage grâce à ses dimensions imposantes. Il est même possible de placer des rangements sur l’intérieur de sa porte.
+![desktop_sectorisezcuisine_espacepetitdejeuner_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020494e/desktop_sectorisezcuisine_espacepetitdejeuner_p1.jpg)
+## Pour le repas, place aux meubles de cuisine dédiés !
+Regroupez la vaisselle de tous les jours dans un seul et même lieu. Tout le nécessaire pour un réveil réussi se trouve dans un unique**[meuble](/cuisine-CCU0001/meubles-modeles-cuisine-CCN0010)**: l’espace petit-déjeuner contient bols, céréales, grille-pain…. Les assiettes, les verres et les couverts se glissent quant à eux facilement dans l’espace repas.
+##
+Faites du dessous de votre évier un espace de tri sélectif. Le tiroir du haut accueille éponges, serpillières et autres sacs. Plus bas, vous gardez les différentes poubelles nécessaires. Le tri devient une partie de plaisir !
+Pensez enfin à protéger les petits en installant des [**verrous magnétiques**](/verrou-magnetique-FPC0138470). Vous disposez ainsi d’un système de sécurité pour les placards qui renferment des produits chimiques ou vos produits d’entretien comme le protecteur de plaques vitro et induction.

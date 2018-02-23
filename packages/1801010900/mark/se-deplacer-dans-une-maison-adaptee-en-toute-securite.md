@@ -1,0 +1,9 @@
+## Ne redoutez plus votre escalier intérieur : adaptez-le !
+Lorsque l’on doit faire face à une perte de mobilité, l’escalier intérieur constitue le point noir des déplacements au sein d’un logement.
+Ne renoncez pas à votre étage ! Lapeyre vous propose l’[**escalier bois Confort**](/escamotable-confort-isolation-renforcee-FPC2074360)fabriqué en France. Avec sa main courante, il vous accueille par des marches abaissées et un plus grand reculement. Autre allié des étages, le monte-escalier Stannah réduit les sollicitations de vos jambes et se décline dans des couleurs très contemporaines…
+![desktop_Se deplacer dans la maison adaptee en toute securite_ACCESSsolid_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020f3d4/desktop_Se deplacer dans la maison adaptee en toute securite_ACCESSsolid_p1.jpg)
+##
+## Diversifiez vos appuis avec une balustrade intérieure personnalisée
+De l’escalier à la mezzanine, les balustrades sécurisent les déplacements de toute la famille et constituent de précieux appuis pour les séniors. Mettez à profit la solidité et la belle transparence des **[balustrades](/exterieur-jardin-CCU0008/balustrades-exterieures-CCN0079)** en acier (Bilame), en aluminium (Épure), en inox (Inoxia) ou en sapin avec fuseaux moulurés. Pour un aménagement plus nomade, le long d’un couloir ou d’une entrée, pensez aux mains-courantes. Articulées, elles s’orientent selon vos préférences.
+## Franchissez les portes intérieures sans effort
+Réduisez les risques de chute en installant des portes coulissantes ! Une légère impulsion et leur vantail se déplace facilement sur son roulement à billes. Simples à poser (système en applique Manhattan), les portes coulissantes se déclinent aussi en 2 portes (Prestige Duo) pour un passage XXL. Et pour un effort encore moindre, pensez à la motorisation de portes coulissantes et battantes, associée à un [**détecteur de présence****.**](/detecteur-de-presence-pour-navibloc-FPC2295700)

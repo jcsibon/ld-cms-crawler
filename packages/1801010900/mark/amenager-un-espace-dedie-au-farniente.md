@@ -1,0 +1,8 @@
+## Les lames de terrasse en bois composite, sans entretien
+Le bois composite a plus d’un tour dans son sac. Composé de fibres de bois et de résine plastique, il se distingue par sa durabilité, le maintien de sa couleur et sa résistance. Il offre surtout l’aspect chaleureux du bois sans les contraintes de l’entretien, ni les échardes ! C’est le cas des **[lames de terrasse](/exterieur-jardin-CCU0008/terrasses-CCN0078/lames-terrasses-CCN0221)** Premium.
+Mais le composite se décline aussi à la verticale : découvrez les **[clôtures à lames pleines](/pack-lames-pleines-pour-cloture-ocewood-FPC2212830)** agencées entre des poteaux alu thermolaqués (3 hauteurs, 4 coloris). Pour rompre avec le style persiennes, retenez le décor verre dépoli ou inox brossé.
+![desktop_3INSTALEXTfacileadapteESP_dalleberlingo_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020e353/desktop_3INSTALEXTfacileadapteESP_dalleberlingo_p1.jpg)
+##
+## Une terrasse surélevée pour compenser un sol extérieur difficile
+Sol en pente, affleurement de roches, etc. Lapeyre vous invite à contourner ces difficultés en recourant à une terrasse surélevée : des [**plots de terrasse**](/plots-de-terrasse-pour-surelevation-module-deck-it-easy-28-a-42-mm-FPC2325180) réglables en hauteur (28 à 245 mm) pallient une pente jusqu’à 5 %.
+Autre aménagement malin : une terrasse en hauteur. Adossée à un mur, elle évoque des ailleurs insulaires et vous permet de bronzer en profitant d’un espace rangement sous vos pieds.

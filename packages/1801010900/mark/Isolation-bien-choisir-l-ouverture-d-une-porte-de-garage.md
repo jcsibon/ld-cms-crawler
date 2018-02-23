@@ -1,0 +1,8 @@
+## Les portes de garage à ouverture sectionnelle
+Si votre garage est exposé au vent, optez pour une porte à ouverture sectionnelle, enroulable ou basculante. La porte coulissante en acier Nebraska constitue aussi une très bonne option. Ces types de portes de garage offrent peu de prise au vent et ne risquent pas de bouger quand vous les utilisez.
+![desktop_priseauventisolation_portegaragemontana_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020677b/desktop_priseauventisolation_portegaragemontana_p1.jpg)
+## L'isolation des portes de garage
+Afin d’éviter les infiltrations d’air froid, optez pour des portes de garage 100 % isolantes. Economies d’énergie garanties !
+Les portes sectionnelles très haute isolation, du type Montana**,** et les portes enroulables Dakota comportent des panneaux isolés avec une mousse polyuréthane et des joints périphériques. Elles assurent ainsi une parfaite étanchéité et une excellente isolation.
+Autre choix possible, la porte de garage basculante isolante Noviso. Elle est composée de panneaux en acier double-paroi anticorrosion, avec un remplissage de mousse polyuréthane. Résultat : une isolation impeccable.
+Enfin, les portes pliantes isolantes Valençay ou Louveciennes peuvent également satisfaire vos besoins d’isolation. Elles disposent de joints périphériques sur l'ouvrant, d'un seuil aluminium et d'un double vitrage 16 mm pour les portes vitrées. Vous luttez ainsi efficacement contre les assauts du froid !

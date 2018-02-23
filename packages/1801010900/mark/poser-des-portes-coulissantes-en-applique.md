@@ -1,0 +1,6 @@
+## La pose d’un rail pour porte coulissante
+Commencez par mesurer votre porte coulissante en applique. Celle-ci doit être aussi haute et large que votre ouverture. Situez le premier point de fixation du rail pour porte coulissante à 45 mm au-dessus de l’ouverture. Puis un second point à 120 mm du bord. Tracez au niveau à bulle la ligne horizontale de fixation sur laquelle vous percez, chevillez et vissez les fixations du rail. Il ne vous reste plus qu’à placer le rail pour porte coulissante en le vissant sur les fixations déjà installées.
+![desktop_poserdesportescoulissantapplique_soho_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020bab0/desktop_poserdesportescoulissantapplique_soho_p1.jpg)
+##
+## La fixation des butées et du système anti dégondage
+Installez tout d’abord le guide que vous fixez au sol, dans l’axe d’ouverture. Disposez ensuite les butées et revissez le système anti dégondage sur les roulettes. Votre porte coulissante en applique est prête à être utilisée... et à vous faire gagner beaucoup d’espace !

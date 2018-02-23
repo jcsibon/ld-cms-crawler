@@ -1,0 +1,7 @@
+## Installer des fenêtres Lapeyre à double vitrage
+En optant pour des ouvertures à double vitrage comme la fenêtre Alu Performance ou PVC Performance, vous vous assurez une haute isolation thermique.
+En chiffres, cela se traduit par une réduction par quatre de la déperdition de chaleur due aux fenêtres et la possibilité de réduire jusqu'à 25 % vos factures énergétiques.
+Pour renforcer votre isolation de maison, pensez à les doter de volets adaptés. Le choix d’un bloc [**volet roulant solaire Prestige**](/volets-roulants-prestige-lames-fixes-FPC2382440) répond au critère de Très Haute Performance Énergétique tout en alliant l’économie d’un volet électrique solaire et autonome. Le volet roulant Confort Solaire fonctionne uniquement à l’énergie solaire et assure un confort d’occultation à distance.
+## Poser des portes d’entrée et de service bien isolantes
+Les portes qui donnent sur l’extérieur doivent s’ériger en rempart contre le froid et conserver au mieux la chaleur de votre intérieur. Choisissez ainsi une porte d’entrée \*\*\* Haute Isolation Thermique comme le modèle Tampa ou Kansas en aluminium, [**Minsk**](/porte-d-entree-minsk-bois-exotique-FPC2307621) en bois exotique, ou la [**porte de service Ouessant**](/porte-de-service-ouessant-pvc-FPC2252921) en PVC. Équipées d’un joint périphérique et d'un panneau isolant, elles neutralisent au mieux la déperdition de chaleur.
+À l’intérieur, poursuivez votre quête de bien-être en équipant vos portes intérieures de l’option confort qui réduit de 30 % les pertes de chaleur d’une porte standard.

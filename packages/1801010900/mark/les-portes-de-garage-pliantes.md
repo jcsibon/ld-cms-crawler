@@ -1,0 +1,7 @@
+## Un porte de garage pliante, facile à installer
+Livrées en kit, **[les portes de garage pliantes](/portes-garage-CCN0076/portes-garage-pliantes-CCN0215)** comportent 3 à 4 vantaux et s’ouvrent très simplement vers l’intérieur du garage. Elles existent en format standard ou sur mesure. Plusieurs modèles sont même aptes à la recoupe.
+Pour plus de luminosité, la partie haute de certaines portes de garage pliantes peut être ajourée et équipée de vitrages et de grilles de protection.
+![desktop_portegaragepliantes_acierminnesota_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002063e1/desktop_portegaragepliantes_acierminnesota_p1.jpg)
+## Une porte de garage pliante en bois exotique
+Les portes de garage pliantes Landon, **[Louveciennes](/porte-de-garage-louveciennes-pliante-bois-exotique-avec-lucarne-FPC2065610)** et **[Valençay](/porte-de-garage-valencay-pliante-bois-exotique-a-hublots-FPC2065630)** sont en tauari, un bois exotique très résistant. Les portes de garage en sapin sont livrés prêts à peindre : vous choisissez vous-même la couleur qui vous plait ! Toutes ces portes de garage vous offrent l’isolation naturelle du bois.
+Pour en savoir plus, n’hésitez pas à lire nos autres guides sur les portes de garage battantes**,** coulissantesou lesportes en accordéon par exemple !

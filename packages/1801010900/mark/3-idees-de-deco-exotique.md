@@ -1,0 +1,8 @@
+## Portes coulissantes, les sésames d’une déco zen
+La sélection Lapeyre revisite les célèbres _shoōji_, ces panneaux japonais en bambou et papier de riz. Découvrez leurs homologues contemporains : les [**systèmes coulissants pour séparer des pièces**](http://www.lapeyre.fr/collection-parenthese-FPC2128270). Le[](/systeme-coulissant-manhattan-en-applique-pour-porte-en-bois-FPC2250240)**[système Manhattan](http://www.lapeyre.fr/portes-CCU0004/separations-pieces-CCN347190/systemes-coulissants-CCN0171)** peut ainsi accueillir une porte en bois, en verre ou même à deux vantaux. Pour un effet japonisant ou une déco nature, associez le système Manhattan à la **[porte Végétale](/porte-en-verre-vegetale-pour-systeme-manhattan-FPC2360740)**. En verre trempé issu des ateliers Saint-Gobain, cette porte hisse son illustration sérigraphiée au rang de décoration murale !
+![desktop_3ideedecopourtoucheEXOM_terrassehauteur_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020e160/desktop_3ideedecopourtoucheEXOM_terrassehauteur_p1.jpg)
+##
+## Le brise-soleil extérieur : l’atout déco d’une maison au style colonial
+Pourquoi ne pas allier esthétique et confort en installant une tonnelle ? la **[tonnelle Lubéron](http://www.lapeyre.fr/tonnelle-luberon-FPC2126570)** vous permet de profiter de votre espace extérieur pour des repas ou des après-midi détente à l'abri du soleil.
+## La terrasse sur plots : véritable invitation au voyage...
+Pas besoin d’être au bord de la mer pour installer une **[terrasse sur plots](http://www.lapeyre.fr/exterieur-jardin-CCU0008/terrasses-CCN0078/modules-terrasses-CCN0220)** ! Disposés sur une dalle béton, les plots réglables en hauteur (28 à 245 mm) vous permettent même de compenser un dénivelé ou une pente malvenue (0 à 5 %).

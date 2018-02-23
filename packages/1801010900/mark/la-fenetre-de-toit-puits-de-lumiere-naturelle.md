@@ -1,0 +1,9 @@
+## Puits et lucarne : plein feux sur la lumière naturelle
+Vous envisagez un aménagement de combles pour accéder ponctuellement à cet espace sous toit et stocker vos affaires ? Comptez sur la [**lucarne de toit**](/fenetres-CCU0003/fenetre-toit-CCN0041/lucarne-CCN295642), véritable atout pour votre budget en éclairant vos combles à un moindre prix. Elle s’installe sur les toitures à forte pente (>15°) et elle devient une solution simple grâce à son raccord universel et à sa poignée interchangeable.
+Pour passer à la taille au-dessus, ciblez la [**fenêtre de toit Lapeyre**](/fenetres-CCU0003/fenetre-toit-CCN0041)en pin nordique PEFC, disponible jusqu’au format 114 x 118 cm.
+Quitte à être au grenier, profitez-en pour installer un [**puits de lumière**](/fenetres-CCU0003/fenetre-toit-CCN0041/sun-tunnel-CCN295644)qui illuminera les pièces aveugles de votre maison. Son conduit réfléchissant (rigide ou flexible) amène la lumière du jour à travers vos combles, cloisons et plancher.
+## Fenêtre de toit Velux® : une bonne isolation tout ayant une bonne visibilité
+Lapeyre a sélectionné un spécialiste de la fenêtre de toit depuis 1941 : le fabricant Velux®. Découvrez ses fenêtres en pin PEFC (finition blanchie ou naturelle) montées avec un double vitrage 24 mm enserrant du gaz Argon :
+- La fenêtre Velux® Standard, disponible en 10 formats, est facile d’entretien grâce à son système d’ouverture par rotation ;
+- La Fenêtre Velux® Confort, permet une bonne isolation, atténue les bruits extérieurs et prévient les risques de blessure avec son verre feuilleté ;
+- La fenêtre Velux® Tout Confort, son système breveté réduit de moitié le bruit des gouttes et son vitrage « Clair & Net » limite la corvée d’entretien. Solution idéale dans le cas des ouvertures inaccessibles... D’ailleurs, avez-vous pensé à faire motoriser vos fenêtres de toit ?

@@ -1,0 +1,9 @@
+## La terrasse en bois de plain-pied
+Si vous souhaitez créer une terrasse sur votre terrain, l’ossature de plain-pied en bois s’avère être la solution la plus simple, particulièrement économique, et qui peut même se révéler écologique ! En effet, si votre sol est stabilisé, vous pouvez poser l'ossature en bois directement sur le sol.
+Pour l’installation, vous recoupez les cadres en bois pour qu’ils s’adaptent parfaitement à vos dimensions. Ils s’emboitent simplement grâce à un système de connecteurs métalliques. Vous couvrez l’ossature des lames de votre choix et le tour est joué !
+![desktop_lesossaturesdeterasse_tonnellesydney_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020333b/desktop_lesossaturesdeterasse_tonnellesydney_p1.jpg)
+## La terrasse en bois sur pilotis
+La **terrasse sur pilotis**[](/terrasses-sur-pilotis-FPC2129790)vous permet de compenser les dénivelés de votre terrain ou de jouer avec les volumes dans votre jardin. Son ossature en bois de pin vient se fixer contre le mur de votre maison et sur des poteaux en bois.
+Pour assurer la stabilité de votre terrasse, nous vous recommandons de poser chaque poteau sur un plot en béton à l’aide d’un support métallique à vis.
+## Installer une balustrade sur une terrasse en bois sur pilotis
+Si vous optez pour une terrasse sur pilotis, nous vous recommandons d’installer une [**balustrade**](/balustrades-exterieures-CCN0079) pour assurer la sécurité de vos enfants et de vos proches. Choisissez le type de poteaux, la main courante (inox, bois ou aluminium) et le remplissage que vous souhaitez (de simples câbles en inox aux verres en acrylique modernes, en passant par la tôle perforée). Vous pouvez également opter pour une balustrade en pin.

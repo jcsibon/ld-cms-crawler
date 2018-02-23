@@ -1,0 +1,7 @@
+## L’ombre a un allié de taille : le store banne
+Commençons notre tour d’horizon des toits de terrasse par la version grand luxe de cet allié fraîcheur : le [**store banne**](/stores-banne-CCN0082). Ce store automatique, extrêmement résistant (testé 14 000 cycles soit l’équivalent de 40 ans d’utilisation) vous assure un confort unique.
+Le [**Pack Eco Monoblock**](/stores-bannes-monobloc-manuel-FPC2379830) à manœuvre électrique filaire et le [**Pack Confort Semi-Coffre**](/stores-bannes-semi-coffres-manuel-FPC2379950)à manœuvre radio garantissent une ombre parfaite grâce à leur toile épaisse (280 g par m2) et facilement réglable.
+Question esthétique, le store banne vous propose ses 29 choix de couleurs pour que vous l’harmonisiez avec votre façade. Et pour en profiter de jour comme de nuit, ou même en automne, équipez-le d’accessoires : lumière, capteur de vent et soleil ou chauffage !
+## Créer une ambiance extérieure avec une tonnelle
+Donnez à votre terrasse un style unique en installant l’une de nos tonnelles. Un look un peu rétro avec les tonnelles Lubéron ou Provence, ou un design résolument contemporain avec le modèle Sydney... Aucun doute, vos repas se feront à l’abri d’une toile très tendance !
+Cet aménagement extérieur est très simple à poser grâce à son appui direct sur votre mur et ses deux mâts inclinés.

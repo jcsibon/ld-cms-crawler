@@ -1,0 +1,8 @@
+## Demandez l'avis des experts sur votre projet de rénovation
+Depuis chez vous, découvrez nos guides vous permettant de [**bien choisir votre fenêtre**](/c/magazine/fiches-projets/fiche-projet-fenetre)en fonction de vos besoins et de vos envies (taille, matériau, vitrage, design). Le modèle Performance Alubois marie la résistance et la stabilité de l’alu à la beauté du bois, tout en offrant une luminosité maximum. Les ouvertures Classic PVC s’accordent quant à elles aisément avec tous les styles.
+## Élaborez votre budget de remplacement de fenêtres
+Faites-vous une idée du coût de votre rénovation en un seul clic grâce au [**devis rapide fenêtre en ligne**](/c/magazine/outils/outil-devis-rapide-fenetres-lapeyre), qui inclut la pose et l’installation à domicile !
+Consultez les vendeurs Lapeyre pour découvrir toutes les possibilités de financement disponibles pour vous aider à boucler le financement de votre projet.
+## Les coups de pouce Lapeyre pour changer vos fenêtres
+Vous souhaitez installer vous-même votre nouvelle menuiserie ? La fiche projet Lapeyre vous guide pour bien prendre les mesures de votre ouverture. Suivez les étapes de la pose d’une fenêtre avec notre vidéo sur la [**rénovation de vos fenêtres en images**](/c/magazine/pieces-maison/opter-pour-la-renovation-de-fenetres).
+Le temps vous manque ? Laissez faire les experts Lapeyre en optant pour le Pack Excellence, disponible pour tous les matériaux (Alu, Alubois, PVC ou Bois) : délais de livraison très courts, pose garantie par des professionnels RGE et produits éligibles aux avantages fiscaux.

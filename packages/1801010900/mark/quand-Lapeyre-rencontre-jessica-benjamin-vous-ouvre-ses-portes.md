@@ -1,0 +1,6 @@
+## L’univers de Jessica, une porte ouverte sur les bonnes idées aménagements et décoration
+[![encadré réseaux sociaux Jessica](http://www.lapeyre.fr/img/contrib/2e0a2549ba20b909/encadré réseaux sociaux.png)](http://www.aventuredeco.fr/)Pour Jessica, qui confesse volontiers « ne jamais s’arrêter », l’**aménagement d’intérieur** et la **décoration** doivent rester accessibles et simples. Une devise que l’on retrouve dans la plupart de ses vidéos.
+Départ imminent : suivez Jessica dans ses **rencontres avec des passionné(e)s** de décoration, de bricolage et d’aménagement. Glanez-y des idées, des conseils, et en bonus... profitez de la bonne humeur communicative de Jessica !
+## D’autres bonnes idées pour un intérieur toujours mieux aménagé
+Impossible de résister à l'énergie de Jessica ? Ça tombe bien : Lapeyre et Jessica vous réservent encore bien des surprises, comme des **avant/après** pour connaitre tous les secrets des **transformations d’intérieur** réussies, des **vidéos interactives** ou des chroniques de **blogueurs invités**.
+Retrouvez les autres vidéos de Jessica sur notre [chaîne Youtube](https://www.youtube.com/playlist?list=PLRhx6_nMJ4S-AL3NPbhrzyOyOIZGX7pr-)

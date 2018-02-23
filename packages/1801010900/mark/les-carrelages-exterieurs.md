@@ -1,0 +1,6 @@
+## Des carrelages extérieurs qui résistent à tout
+Les **[carrelages extérieurs](/carrelage-terrasse-CCN0219)** sont pensés pour affronter les intempéries. Ils respectent tous la norme ISO 10545-12, qui vous garantit leur résistance au gel. Pour votre confort, ils sont aussi dotés d’une surface antidérapante qui les rend moins glissants lorsqu’ils sont mouillés !
+Pour assurer sa durabilité, découvrez comment poser du carrelage en tenant compte de la pente et de l’évacuation des eaux. Nous vous conseillons également d’utiliser une colle et des joints de la marque Weber, spécialement conçus pour l’extérieur.
+![Desktop_CarrelageExt_Carbone](//statics.lapeyre.fr/img/contrib/2bdd4da30020347f/Desktop_CarrelageExt_Carbone.jpg)
+## Idées déco pour choisir le bon carrelage de terrasse
+Pour carreler un balcon ou une terrasse jouxtant une pièce, optez pour des modèles à combiner avec des carrelages intérieurs coordonnés, tels que la ligne Ontario en grès cérame émaillé. Si vous voulez créer un espace extérieur tendance, craquez pour les carreaux imitation bois. Ils vous offrent tout le design du teck, du wengé ou encore du bois grisé sans les inconvénients de l’entretien ! Adeptes du classique, découvrez le style pavé de la collection Paris et l’effet mosaïque du carrelage Pompéi. Et pour une terrasse nature et zen, choisissez un sol avec des listels en cailloux !

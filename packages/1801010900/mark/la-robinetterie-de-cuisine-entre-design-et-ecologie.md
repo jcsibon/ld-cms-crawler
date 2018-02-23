@@ -1,0 +1,7 @@
+## Une maison écologique grâce à la robinetterie de cuisine
+Les mitigeurs nouvelle génération **[Onyx](/mitigeur-evier-onyx-simple-FPC372666)**, **[Focus bec haut](https://www.lapeyre.fr/mitigeur-evier-focus-bec-haut-simple-FPC3023410)**, et **[Eurosmart](https://www.lapeyre.fr/mitigeur-evier-eurosmart-cosmopolitain-simple-FPC3015220)** sont équipés d’une butée à mi-débit qui limite votre consommation d’eau.
+Le mitigeur **[Époque](https://www.lapeyre.fr/mitigeur-evier-epoque-simple-FPC1239747)** est quant à lui équipé d’une cartouche à deux positions qui permet d’avoir un écoulement d’eau normal ou réduit pour économiser l’eau.
+Le mitigeur **[Zoom](/mitigeur-evier-zoom-simple-FPC3023430)**est en outre doté d’un mousseur détartrable qui crée une sensation de pression tandis que le mitigeur à douchette **[Bulle](https://www.lapeyre.fr/mitigeur-evier-bulle-avec-douchette-FPC3024660)** offre deux jets différents, dont un avec projection d’air. Le tout, en consommant moins d’eau pour un jet plus puissant !
+## L’atout design et innovation de votre robinet de cuisine
+La robinetterie de cuisine exhibe des formats carrés très tendance, des robinets à bec long pour un design stylisé qui s’avère plus pratique d’utilisation.
+Vous pouvez aussi combiner design et nouveauté révolutionnaire avec le mitigeur **[Minta Easytouch](/mitigeur-evier-minta-easy-touch-simple-FPC3023450)** qui s’ouvre simplement en le touchant avec le coude ou le poignet et s’éteint d’une seconde pression. Pratique lorsqu’on a les mains sales ou occupées !

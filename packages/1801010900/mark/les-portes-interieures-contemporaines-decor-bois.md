@@ -1,0 +1,10 @@
+## Les portes intérieures décor en bois
+Que vous optiez pour un bloc-porte pour du neuf ou une porte seule pour un projet de rénovation, vous pouvez personnaliser votre ouverture de porte. Habillées d’un décor très résistant et facile d’entretien, les **[portes](/portes-CCU0004/portes-interieur-CCN0085)** bois existent en plusieurs finitions : bois exotique, bois hêtre, wengé, ou encore merisier. Pensez aussi à la collection Plane qui propose notamment un bloc-porte en chêne blanchi.
+Pour plus de luminosité, certains modèles vous proposent une porte vitrée.
+![desktop_portesINTcontemporainesdecorbois_novea_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002008c8/desktop_portesINTcontemporainesdecorbois_novea_p1.jpg)
+## Variations autour du décor bois
+La sobriété et le style contemporain sont l'apanage de la collection Variation, avec ses finitions en [**chêne blanchi**](/bloc-porte-variation-chene-blanchi-FPC2399552)[](http://www.lapeyre.fr/bloc-porte-variation-chene-blanchi-FPC2399552)ou chêne royal, wengé, merisier ou merisier brun. Elle s’habille également d’un décor structuré de couleur blanche, cendré, chocolat, ou noir.
+Parmi ses options, le hublot, posé en usine, comprend un encadrement de porte laiton ou aluminium brossé, et un verre transparent, un verre dépoli ou même un verre sérigraphié.
+## Des portes intérieures contemporaines en hêtre
+Les portes contemporaines en hêtre sont vernies pour davantage d'élégance et peuvent être vitrées, dans le cas des modèles [**Scala**](/bloc-porte-scala-hetre-FPC2402412) ou Linéa. Elles proposent une large gamme d’éléments de personnalisation : face ardoise, couleur, verre dépoli ou verre transparent, hublot vitré ou encore deux vantaux.
+Vous préférez la touche tradition du bois massif ou plaqué ? Découvrez nos collections de portes authentiques.

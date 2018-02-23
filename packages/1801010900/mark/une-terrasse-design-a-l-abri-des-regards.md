@@ -1,0 +1,9 @@
+## Une terrasse sur pilotis pour éviter les regards scrutateurs
+A la campagne, si vous souhaitez profiter du paysage sans être obligé de vous cacher derrière une haie ou des panneaux, il suffit de prendre de la hauteur.
+Lapeyre vous propose une [**terrasse sur pilotis**](/terrasses-sur-pilotis-FPC2129790) simple à monter. Constituée d’un cadre en pin, elle s’adosse à votre mur et s’appuie sur des poteaux de 95 cm. Doublez cette élévation de presque un mètre grâce à une balustrade très design. Avec les balustrades [**Inoline**](/balustrade-alu-inoline-FPC2130020), équipées de tôle perforée, ou I-One avec leur soubassement en verre feuilleté, vous voilà à l’abri des regards.
+![desktop_terrasseabriregards_terasseenhauteur_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002071f4/desktop_terrasseabriregards_terasseenhauteur_p1.jpg)
+##
+## Une terrasse sécurisée et bien délimitée
+Vous êtes du genre à penser qu’il faut cultiver son jardin secret et savoir limiter la promiscuité, même en ville ? Créez un espace éloigné du regard des autres à l’aide d’une clôture ou de panneaux qui donneront du style à votre aménagement extérieur.
+Si votre jardin ou votre cour donne sur la rue, n’hésitez pas à installer une clôture en aluminium sur muret ou directement au sol. Vous pourrez alors en profiter sans vous préoccuper d’être vu... Idéal pour bronzer tranquille en été !
+Placez plutôt des panneaux Ocewood en composite s’il vous suffit de fermer l’angle ouvert de votre terrasse. Vous pouvez les combiner aux lames de terrasse Ocewood pour créer un lieu intime d’une élégance chaleureuse… À utiliser sans modération !

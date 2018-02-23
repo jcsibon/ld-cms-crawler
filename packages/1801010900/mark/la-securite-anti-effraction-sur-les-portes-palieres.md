@@ -1,0 +1,8 @@
+## Les portes renforcées et blindées
+Bien se protéger, c’est d’abord choisir la bonne porte palière. Optez pour une porte renforcée ou blindée (Sécurimax). Avec une épaisseur de 40 mm ferrée et une serrure à trois points de fermeture, la palière prépeinte renforcée allie sécurité et prix modéré.
+Encore plus résistante, la **[porte blindée](/bloc-porte-palier-blinde-renforce-sipo-a-vernir-3-pts-35-db-FPC1760051)** est dotée d’un blindage acier et d’une serrure à 3 ou 5 points de fermeture. Elle est disponible en prépeint, en chêne.
+![desktop_securiteportepalieres_bladearosace_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300202fe3/desktop_securiteportepalieres_bladearosace_p1.jpg)
+## Les serrures de porte et les verrous de sécurité
+Pour fortifier une porte déjà existante, installez une serrure renforcée, verticale ou horizontale. Le modèle serrure 6 points à bandeau possède une plaque blindée anti-perçage. Pour une protection optimale, choisissez les produits dotés du label A2P, qui vous garantit que votre serrure résistera aux tentatives d’effractions.
+## Les poignées de portes et les accessoires haute sécurité
+La sécurité de votre porte passe aussi par… sa poignée ! Nos poignées haute protection en laiton massif compléteront votre dispositif retardateur d'effraction. Découvrez toute une gamme d’accessoires faciles à installer : du verrou électromecanique au judas numériques en passant par l’entrebâilleur en acier qui vous protège au moment d’ouvrir votre porte à un inconnu.

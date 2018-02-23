@@ -1,0 +1,11 @@
+##
+**Les**[**portes d’entrée en PVC**](https://www.lapeyre.fr/portes-CCU0004/portes-entree-CCN0051#facet:-70000000000000038458011899&facetContent:undefined&productBeginIndex:0&contentBeginIndex:0&orderBy:5&orderByContent:&pageView:grid&pageViewContent:&minPrice:&maxPrice:&pageSize:&) **vous assurent un excellent rapport qualité/prix avec un matériau de haute résistance, garanti sans plomb et facile d’entretien.**
+## Entre résistance et parfaite isolation
+Inaltérables, les[portes d’entrée](https://www.lapeyre.fr/portes-CCU0004/portes-entree-CCN0051#facet:&facetContent:&productBeginIndex:0&contentBeginIndex:0&orderBy:5&orderByContent:&pageView:grid&pageViewContent:&minPrice:&maxPrice:&pageSize:&) en PVC résistent aux chocs et aux intempéries. Elles sont une valeur sûre pour les maisons situées dans des régions aux climats rudes ou pluvieux. De plus, les qualités isolantes du PVC ne sont plus à prouver et constituent un atout supplémentaire. Les modèles de performance deux et trois étoiles proposés par Lapeyre possèdent chacun le label Haute Isolation Thermique (HIT). Et pour stopper totalement les courants d’air, nos portes sont également équipées d’un joint d’étanchéité sur l’ouvrant et le dormant.
+Notez que les modèles vitrés sont dotés d’un double ou triple vitrage, renforçant ainsi l’isolation. Enfin, toutes les portes de performance 3 étoiles, bénéficient de la « Haute Isolation Phonique ».
+![porte pvc 1](http://www.lapeyre.fr/img/contrib/326fe2b011801c05/201514234.jpg)
+Petits plus et pas des moindres, les portes d’entrée en PVC offrent un large choix de personnalisation et sont faciles d’entretien. Contrairement à d’autres matériaux, elles sont imputrescibles et résistantes à la saleté ainsi qu’à la poussière et ne demandent pas d’être lavée avec des produits spécifiques. Un coup d’éponge et hop, le tour est joué. Sans compter qu’elles sont durables et surtout bon marché !
+## Une façade au goût du jour
+Grâce à un large de choix de décors, les modèles de portes jouent sur les découpes vitrées et les jeux de lumière.
+![porte pvc2](http://www.lapeyre.fr/img/contrib/326fe2b011801c0e/201208488.jpg)
+Côté couleur, vous pourrez choisir entre le blanc classique, un gris passe-partout ou des teintes plus originales. À condition, toujours, de veiller à conserver une belle harmonie.

@@ -1,0 +1,8 @@
+## Tables de cuisson, four encastrables : des éléments de cuisson au diapason
+Lorsque vous choisissez d’aménager votre cuisine en prenant soin de coordonner ses meubles de cuisine, il est dommage de rompre cette harmonie à cause d’électroménagers non adaptés.
+Préférez les [**tables de cuisson**](/tables-cuisson-CCN0097), notamment les [**tables en vitrocéramique**](/vitroceramique-CCN688282) ou **[tables à induction](/induction-CCN688281)** extraplates. Côté four et [**four micro-ondes**](/fours-micro-ondes-CCN0095), n’hésitez pas à opter pour un four compact adapté aux pièces de taille réduite. Embellissez la déco grâce à leurs façades design et glissez votre four encastrable dans un meuble ou dans une colonne de cuisine. En hauteur, vous y gagnez en confort et en sécurité. Pensez aussi au four à ouverture tiroir ou au four à ouverture latérale.
+![desktop_ELECencastrableembellissecuisine_sylver_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300207779/desktop_ELECencastrableembellissecuisine_sylver_p1.jpg)
+##
+## Hotte de cuisine, lave-vaisselle et réfrigérateur : encastrés ou intégrés ?
+La cuisine est l’espace de la maison qui concentre le plus d’électroménagers. Pour éviter que cette abondance ne nuise au style, optez pour un électroménager full intégrable ou très design comme la hotte décorative luminaire.
+Certains appareils mériteront d’être mis en valeur tandis qu’un lave-vaisselle full intégrable ou un réfrigérateur intégrable disparaitront derrière des façades identiques à celles de vos meubles. À présent, à vous de composer votre cuisine !

@@ -1,0 +1,9 @@
+## Installez un robinet de lavabo ou de vasque
+Un robinet « petit modèle » s’adapte parfaitement à un lavabo ou une vasque encastrée. Vous avez le choix entre un mélangeur classique ou un mitigeur comme le **[Totem](/mitigeur-lavabo-totem-petit-modele-FPC1221750)**, l'Aura(petit modèle) ou le **[Concetto](/mitigeur-evier-concetto-simple-FPC3015240)**. La robinetterie grand modèle ou nos mitigeurs encastrés tels que le **[Next](/mitigeur-lavabo-next-mural-FPC1237424)** ou le Damier sont idéaux pour une vasque à poser. Un grand nombre de choix entre les modèles ronds ou carrés !
+## Poser un robinet mitigeur pour baignoire
+Nous vous offrons une vaste gamme de mitigeurs, du rétro Priméa au futuriste Jade . Dans votre baignoire à bords larges, installez le mitigeur Infinity à 3 trous ou les mitigeurs Talis S , Niagara , Diamant. Ils comprennent une cascade et une douchette à jet variable.
+Autre option intéressante pour votre baignoire : le mitigeur thermostatique . Il est équipé d’un bouton de sécurité vers les températures élevées et maintient la température souhaitée dès l’allumage.
+![desktop_robinetpourchaqueespace_mitigeursaura_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300205188/desktop_robinetpourchaqueespace_mitigeursaura_p1.jpg)
+## Remplacer votre robinetterie de douche
+Pour votre espace douche, choisissez une colonne thermostatique . Tous les modèles, du simple Primea aux raffinés Euphoria 310 , New York ou Idéa , possèdent une pomme haute, une douchette à main et un inverseur.
+Plus économique, le kit de douche complète votre robinetterie existante. Pour transformer votre douche en spa, rien de tel que nos colonnes hydromassantes, avec des modèles comme la I-Water ou la Shine.

@@ -1,0 +1,10 @@
+## Le carrelage d’extérieur et les lames de terrasse en bois
+Si votre demeure est une vieille bâtisse, un ancien corps de ferme ou tout simplement une maison traditionnelle, optez pour les [**lames de terrasse**](/exterieur-jardin-CCU0008/terrasses-CCN0078/lames-terrasses-CCN0221) ou le [**carrelage d’extérieur**](/sols-murs-CCU0007/carrelages-CCN0087/carrelage-sol-exterieur-CCN0186).
+Les revêtements de sols en bambou présentent une esthétique proche des meilleurs bois exotiques ainsi qu’une grande résistance aux moisissures et aux attaques de parasites. Les lames de terrasse en pin sont parfaitement imputrescibles, quand celles en douglas sont non traitées.
+Le carrelage d’extérieur vous offre une diversité de formes et de motifs qui s’adapte à de nombreuses déco. Choisirez-vous le charme ancien des carreaux du type **[Vermont Grip](/carrelage-vermont-gripp-34-x-34-cm-FPC1231543?_ga=1.78909015.2145372469.1442390736)** ou plus les effets matières du type **[Eden](/carrelage-eden-34-x-34-cm-FPC440222)** ?
+![desktop_dessolspouruneterrassetendance_lamesEmotion](//statics.lapeyre.fr/img/contrib/2bdd4da300203834/desktop_dessolspouruneterrassetendance_lamesEmotion.jpg)
+## Le confort d’utilisation des lames composite et des caillebotis
+Si votre souhait est de créer une terrasse moderne, laissez-vous tenter par les nouvelles matières.
+Les lames composite vous font retrouver l’esthétique d’un sol de terrasse à lames avec les vertus du composite et une installation simplifiée grâce à la pose clipsée. Ce matériau très résistant est particulièrement conseillé en bord de mer et autour d’une piscine.
+Les **[caillebotis](/sols-murs-CCU0007/terrasse-CCN0074/caillebotis-CCN0202)** à clipser ou à visser s’inspirent des autres matériaux, les mélangent et retirent le meilleur de chacun d’eux. La preuve ? Les caillebotis **[Bangkiraï,](/caillebotis-en-bangkirai-pose-classique-FPC2185060)** ou **[Douglas naturel](/dalle-de-terrasse-douglas-a-clipser-FPC427089)**.
+Alors maintenant à vous de jouer et composer votre terrasse ou balcon.

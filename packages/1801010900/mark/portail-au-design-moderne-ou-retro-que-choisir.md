@@ -1,0 +1,9 @@
+## Pour les fans de design moderne : le portail coulissant aluminium
+Les portails alu sont légers, faciles à manipuler tandis que l’aluminium résiste vaillamment aux intempéries. Pour souligner la modernité de ce matériau, optez pour un coloris tendance (plus de 200 teintes au choix !) et une ouverture coulissante. Une combinaison que l’on retrouve dans le [**portail Napoli**](/portail-coulissant-aluminium-napoli-FPC2318911) qui affiche votre parti-pris design tout en préservant votre intimité.
+Pour nuancer cette approche contemporaine, ciblez les modèles ajourés tels que le [**portail Pise**](/travee-alu-bari-pise-FPC2377390) aux motifs carrés ou le [**portail Dolomite**](/travee-alu-dolomite-rialto-FPC2238730) alternant lames plates et lames vénitiennes… Une touche de rétro s’invite au jardin !
+![desktop_portailmodernvsretroquchoisir_dampierre_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020ed1b/desktop_portailmodernvsretroquchoisir_dampierre_p1.jpg)
+##
+## Pour les amateurs de rétro : le portail battant acier
+Lapeyre vous propose des modèles standards et sur-mesure que vous pouvez assortir à un portillon, une travée et une balustrade pour une façade coordonnée.
+Des pointes châtelaines du portail Dampierre aux arabesques romantiques du modèle Rambouillet, l’acier se plie à tous les canons esthétiques pour refléter l’époque de votre souhait. Moins ancré dans la tradition, le portail Modèle A associe des motifs contemporains à une possibilité de festonnage.
+Vous êtes du genre à briser les codes en matière de déco ? Ajoutez une motorisation à votre portail acier authentique !

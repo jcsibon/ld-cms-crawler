@@ -1,0 +1,6 @@
+## L’aménagement de placard dans des endroits inattendus
+Petit tour du propriétaire. Identifiez les endroits inoccupés qui pourraient devenir de merveilleux espaces de rangement. Profitez d’un toit en pente pour placer un [**aménagement sous-combles**](/amenagement-sous-combles-FPC2162120) où vous pourrez ranger des chaussures ou le linge de maison. Dans une chambre, utilisez l’encadrement d’une porte en y installant l’aménagement extensible Dubaï qui s’adaptera parfaitement à l’espace disponible. Posez un bureau sous-escalier accompagné d’étagères assorties ou un [**placard sous escalier avec la gamme Déclic**](/amenagements-sous-escaliers-2-etageres-FPC2271400).
+![desktop_placarddanstousrecoins_COULsouscomble_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020b216/desktop_placarddanstousrecoins_COULsouscomble_p1.jpg)
+##
+## Les atouts « gain de place » d’un placard sur mesure
+Le placard sur mesure Optimiz s’adapte à toutes vos pièces, même celles qui ont une forme et des dimensions irrégulières. En décidant vous-même de la taille de votre placard de rangement, non seulement vous optimisez l’espace qu’il utilisera, mais vous libérez également la place occupée par d’autres meubles !

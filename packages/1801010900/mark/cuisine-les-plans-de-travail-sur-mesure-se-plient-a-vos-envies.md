@@ -1,0 +1,8 @@
+## Un plan de travail sur mesure très en formes
+Qui a dit qu’un **[plan de travail](/cuisine-CCU0001/credences-plans-travail-CCN0013/plans-travail-CCN0091)** devait être rectiligne ? Pas Lapeyre en tout cas, puisqu'avec son service de plan de travail sur mesure, vous accédez à un monde de formes nouvelles. Le « sur mesure » dépasse largement la simple adaptabilité aux dimensions de votre cuisine et vous offre un éventail de création à la carte.
+Table en sifflet, chants arrondis, à pans coupés ou en avances courbées, le plan de travail a la forme. A vous de dessiner l’aménagement de vos espaces. Pour vous faciliter la tâche, n’hésitez pas à télécharger le configurateur de cuisine. Vous pourrez alors disposer selon vos goûts plan de travail, îlot, crédence et en combiner les matériaux et les couleurs.
+![desktop_materiauxformeplantravail_CUISorigine_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300202637/desktop_materiauxformeplantravail_CUISorigine_p1.jpg)
+## Matériaux et couleurs de votre plan de travail sur mesure
+Prenez soin de comparer les avantages des matériaux en fonction de leur utilisation, de leur entretien et de leur résistance. Vous avez le choix entre le quartz, le verre, le **[bois](/plan-hetre-lamelle-28-mm-FPC0208850)**, le **[plan stratifié](/plan-de-travail-blanc-stratifie-28-et-38-mm-FPC1207400)**, l’inox ou la résine.
+Pour chacun de ces matériaux, vous pouvez décider non seulement l’épaisseur, la découpe, les chants... mais également la couleur : chêne blanchi, gris cerise, blanc brillant en inox ou encore lune cendrée ! Parce que votre cuisine ne doit pas seulement être fonctionnelle et facile d’entretien, mais aussi esthétique et design.
+Alors, et si vous optiez pour un plan de travail sur mesure en plus pour travailler moins ?

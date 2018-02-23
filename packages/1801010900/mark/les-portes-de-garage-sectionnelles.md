@@ -1,0 +1,7 @@
+## L’ouverture des portes de garage sectionnelles
+Les [**portes de garage sectionnelles**](/portes-garage-CCN0076/portes-garage-sectionnelles-CCN0211) s’ouvrent verticalement et se logent sous le plafond. Vous pouvez opter pour des modèles standard ou sur mesure , voire motorisés , pour un confort total. Ce type de portes de garage protègent les petites mains grâce à leur système anti-pince doigts.
+![desktop_portegaragesectionnelles_acieroregon_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020645d/desktop_portegaragesectionnelles_acieroregon_p1.jpg)
+## Les avantages des portes de garage sectionnelles
+Les portes de garage sectionnelles en acier offrent solidité et sécurité anti effraction. Grâce aux joints et aux panneaux remplis de mousse polyuréthane, elles assurent de plus une parfaite isolation et une étanchéité à toute épreuve.
+Le plus : craquez pour les couleurs à la carte !
+Pour découvrir encore plus de possibilités, consultez nos guides sur les **[portes de garage pliantes](/portes-CCU0004/porte-garage-CCN353989/Portes-de-garage-pliantes-CCN367543)**, les**[](/porte-garage-CCN353989/Portes-de-garage-battantes-CCN367539)[portes de garage battantes](/c/magazine/pieces-maison/les-portes-de-garage-battantes)**et les portes basculantes !

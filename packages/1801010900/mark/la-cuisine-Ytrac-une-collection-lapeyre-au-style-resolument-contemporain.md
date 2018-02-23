@@ -1,0 +1,10 @@
+## Des meubles de cuisine au style épuré qui se fondent dans votre décor
+Par leur design résolument épuré et leurs façades aux finitions mates et unies, les meubles de cuisine Ytrac empruntent aux codes esthétiques du mobilier de salon. Et ce, jusqu’à sa texture ! En effet, les portes pleines de 19 mm d’épaisseur bénéficient d’une surface « toucher soyeux » qui ajoute à la convivialité sensorielle de cette gamme à part.
+Cette esthétique n’entache en rien la fonctionnalité des équipements Ytrac : les prises de mains restent invisibles, mais bien présentes sur toute la largeur des portes. Les tiroirs bénéficient d’une fermeture progressive tandis qu’un rehausse-plan lumineux et bleuté (sur option) valorise les contours de votre **[plan de travail](http://www.lapeyre.fr/credences-plans-travail-CCN0013/plans-travail-CCN0091)** tout en masquant des prises électriques…
+##
+![201618305](http://www.lapeyre.fr/img/contrib/2d8e4b4a4ea00c77/201618305.jpg)
+## Une finition soignée à l’extérieur comme à l’intérieur
+Pour vous offrir un _total look_ de la cuisine au salon, les meubles Ytrac se déclinent en plusieurs formats : de quoi leur permettre de jouer, tour à tour, les casseroliers et les rangements hauts, comme les meubles dans le couloir.
+## Quatre finitions, quatre ambiances dans la cuisine
+Les meubles de cuisine Ytrac vous sont proposés en 4 coloris au choix : blanc, noir, vison et chêne clair. De quoi vous permettre de mixer les couleurs pour assurer pleinement la transition déco entre la cuisine et le salon.
+Composez[« votre » cuisine-salon Ytrac](https://www.lapeyre.fr/cuisine-CCU0001): nos menuisiers se chargent de lui donner forme dans nos usines, en France et de vous la livrer déjà montée. Une **[fabrication locale](http://www.lapeyre.fr/c/engagements/la-fabrication-francaise-lapeyre)**, mais aussi durable, puisque nous **[garantissons durant 25 ans](http://www.lapeyre.fr/c/services/la-garantie)** cette collection étoilée Lapeyre.

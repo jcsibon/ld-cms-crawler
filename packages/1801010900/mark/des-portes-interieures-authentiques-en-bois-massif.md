@@ -1,0 +1,8 @@
+## Des portes d’intérieur en sapin massif
+Le sapin massif 1er choix brille par sa finesse et ses tonalités chaleureuses et actuelles. Les portes en sapin Classique, [**Campagne à vitrer**](/bloc-porte-campagne-sapin-massif-a-vitrer-FPC2403411), [**Tradition à vitrer**](/bloc-porte-tradition-sapin-massif-a-vitrer-FPC2403491), Spécial ou encore Spécial à vitrer soulignent votre décoration intérieure d’une note douce et harmonieuse.
+Ces blocs-portes à recouvrement sont munis de chevilles et de moulures rustiques pour les portes à l'ancienne. Ils sont également disponibles sur mesure pour la plupart des modèles et en deux vantaux.
+![desktop_portesauthentiqueboismassif_chenemassif_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020523f/desktop_portesauthentiqueboismassif_chenemassif_p1.jpg)
+## Des portes intérieures en chêne massif
+Robuste et noble, le chêne massif lamellé de premier choix et verni en usine est le garant des ambiances d'autrefois. Les chevilles à l'ancienne et les moulures travaillées différents modèles tels que [**Miramont**](/bloc-porte-miramont-chene-massif-FPC2403652), Montagnac, Sarlat, Miramont à vitrer, Montagnac à vitrer, Spécial ou encore Spécial à vitrer donnent toute son authenticité à votre pièce.
+Les blocs-portes à recouvrement, tous dotés d’un joint d'isolation, sont également disponibles en deux vantaux.
+Vous avez le choix entre trois finitions : chêne cérusé, clair, ou rustique.

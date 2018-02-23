@@ -1,0 +1,7 @@
+## La motorisation de portes de toute nature
+Les [**motorisations**](/portes-CCU0004/motorisations-porte-garage-CCN0058) vous simplifient la vie. Plus besoin de descendre de voiture pour ouvrir puis fermer votre [**portail coulissant**](/portails-CCN0089/portails-coulissants-CCN0207) ou votre [**porte de garage**](/exterieur-jardin-CCU0008/portes-garage-CCN0076). Un petit clic sur son boîtier vous assure une entrée facile.
+La motorisation des volets battants est une solution idéale pour les grandes maisons aux nombreuses fenêtres. Ou simplement pour ceux qui ne veulent, ou ne peuvent plus se déplacer si facilement. Ce système, compatible avec la technologie Somfy, vous permet d’ouvrir ou de fermer tous vos volets en même temps. Il est possible de motoriser des volets roulants à manœuvre manuelle, voire d'installer un moteur sur un volet existant.
+![desktop_motorisesecuriteconfort_MOTvoletbattant_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300208120/desktop_motorisesecuriteconfort_MOTvoletbattant_p1.jpg)
+##
+## La motorisation de porte garantit aussi votre sécurité !
+Une porte de garage, un volet battant ou un portail motorisé signifient aussi une sécurité maximale. Votre porte de garage enroulable, sectionnelle ou basculante motorisée dispose d’un détecteur d’obstacle et d’un système anti-pincement. Elles sont dotées d’une sécurité anti-intrusion grâce au blocage assuré par le bloc-moteur.

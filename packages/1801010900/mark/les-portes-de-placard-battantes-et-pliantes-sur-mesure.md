@@ -1,0 +1,8 @@
+## Les dimensions des portes de placard
+Commencez par bien prendre les dimensions de l’espace de rangement, grâce à notre outil spécialement conçu pour vous aider à réaliser votre projet d’aménagement de placard.
+Les **[portes de placard battantes](/portes-battantes-krista-FPC2361550)** sur mesure peuvent aller jusqu’à 2,60 m en hauteur et 1,20 m en largeur. La largeur maximale de chaque vantail est de 60 cm. Les portes de placard pliantes ont la même hauteur, mais elles peuvent être plus larges : elles mesurent jusqu’à 1,60 m et chaque vantail peut atteindre 80 cm de large. (Voir aussi les nouvelles possibilités en magasin)
+![desktop_placardpliantbattantsurmesure_platine_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020024c/desktop_placardpliantbattantsurmesure_platine_p1.jpg)
+## Des portes de placard qui répondent à toutes vos envies
+Les portes pliantes Équilibre vous offrent un grand choix de décors à assortir au reste de votre pièce : ardoise, miroir, tons bois ou encore couleurs tendance comme la couleur taupe ou la couleur rouge…
+Les portes de placard pliantes Rêve et À Peindre vous offrent des portes en MDF brut ou laqué personnalisables à l’aide de motifs gravés et 18 couleurs au choix.
+Pour une déco chaleureuse, misez sur une porte en bois avec la porte de placard pliante Chêne platine ou Krista**.** L’effet structuré du chêne plaqué ou la matière de l’épicéa massif peut être rehaussé de couleurs qui s’harmonisent avec votre décoration d’intérieur.

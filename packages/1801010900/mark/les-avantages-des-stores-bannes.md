@@ -1,0 +1,8 @@
+## Le store banne pour une protection solaire à la demande
+Le [**store banne**](/stores-banne-CCN0082)filtre les rayons du soleil et retient 95 % des U.V. Il vous protège efficacement contre l’éblouissement et la chaleur, mais aussi contre les averses. Pensez aussi au module d’extension avec la toile d’ombrage. Vos enfants jouent en toute sécurité et vous profitez d’un moment de farniente à l’extérieur en toute sérénité.
+Le store banne vous aide également à conserver la fraîcheur de votre maison si vous le placez par exemple au-dessus de la baie vitrée de votre salon.
+## Le store banne motorisé, une solution tout confort
+Vous pouvez moduler l’inclinaison de votre store de 0 à 40°. Selon les modèles et votre budget, vous avez le choix entre un store banne manuel ou un store banne motorisée (connexion filaire à un boitier de commandes ou télécommande sans fil).
+Certains stores possèdent même des capteurs solaires et des capteurs de vent qui détermine automatiquement le système d’ouverture et de fermeture de votre store en fonction des conditions climatiques !
+## Le store banne finalise le style de votre façade de maison
+En plus d’être pratique et fonctionnel, votre **[store banne](/stores-banne-CCN0082)** donne du cachet à votre façade de maison. Sa toile de store en acrylique « anti-salissure » est disponible en 29 coloris. Ses bras mécaniques en laqué blanc apportent une touche de simplicité élégante à votre terrasse.

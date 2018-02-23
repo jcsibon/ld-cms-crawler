@@ -1,0 +1,8 @@
+## Otez l’axe de rotation manuelle de votre volet roulant
+Descendez le tablier de votre volet à son maximum. Détachez la façade du coffre puis dissociez le tablier de l’axe de rotation. Repérez le sens d’enroulement de ce dernier, ainsi que la position des équerres de fixation. Cette précaution prise, retirez l’axe intégralement. Fixez ensuite les supports du nouvel axe.
+![desktop_motoriservolet_voletroulantseul](//statics.lapeyre.fr/img/contrib/2bdd4da30020923b/desktop_motoriservolet_voletroulantseul.jpg)
+##
+## Positionnez et raccordez l’axe motorisé de votre volet roulant
+Glissez l’axe motorisé dans son tube inox, recoupé si nécessaire à la bonne dimension. Installez le tube sur votre support mural. Pensez à passer le câble d’alimentation à l’endroit prévu. Ajustez ensuite la longueur de l’axe et verrouillez ses extrémités. Enfin, accrochez le tablier et procédez au raccordement électrique. Programmez votre volet motorisé et jetez votre vieille manivelle !
+## Motorisez vos volets roulants mais aussi vos volets battants !
+Plus simple, car ne nécessitant aucun câble, la [**pose d’un volet roulant solaire**](/volet-roulant-velux-solaire-ssl-FPC2291070)se résume à l’installation de profilés latéraux et d’un profilé haut. Vous privilégiez les volets battants ? Ne renoncez plus à leur motorisation grâce au kit de motorisation de volets battants proposé par Lapeyre, en neuf comme en rénovation !

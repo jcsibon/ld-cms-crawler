@@ -1,0 +1,20 @@
+##
+Passée de mode, inadaptée, votre cuisine ne vous convient plus et vous souhaitez la changer. Pour la remplacer, voici les étapes principales qui vous attendent.
+##
+1 - Choisir le style de sa cuisine
+On l’a dit, la cuisine se doit d’être pratique, mais aussi esthétique. Tout comme le reste de la maison, elle s’imagine dans l’air du temps et en harmonie avec le reste de votre décoration. Le choix du modèle, de la couleur, du style des portes de placards, la forme des poignées, la matière et la couleur du plan de travail, la faïence ainsi que le sol se pensent ensemble pour créer une belle harmonie. Pour vous inspirer, n’hésitez pas à faire un tour sur les articles de notre Mag ou vous rendre sur notre compte [**Pinterest**](https://www.pinterest.com/lapeyre/), vous y trouverez de quoi vous donner plein d’idées.
+##
+2 - Définir ses besoins
+Avant de vous lancer dans l’aménagement de votre future [**cuisine**](https://www.lapeyre.fr/cuisine-CCU0001), il est important de réfléchir à ce dont vous avez envie et surtout besoin ! Emplacement, disposition, équipement, rangements, matériaux… Essayez de cerner au mieux vos attentes. Cela vous évitera de vous retrouver avec une belle et nouvelle cuisine, malheureusement inadaptée à votre style de vie. Le but étant de créer une pièce aussi pratique qu’esthétique.
+##
+3 - Concevoir
+Pour éviter toute mauvaise surprise au moment de la pose, il est important de réaliser, avant d’acheter votre cuisine, les plans de cette dernière. Commencez par prendre les mesures de votre pièce. Pensez aussi à la préparation du plan électrique et de plomberie. Prévoyez le réseau ainsi que l’emplacement de prises et arrivées d’eau. Cela conditionnera la place de votre [**évier**](https://www.lapeyre.fr/cuisine-CCU0001/eviers-CCN0014), de votre four ou de votre lave-vaisselle. Autour, imaginez la taille et la composition de vos tiroirs et [**meubles de rangement**](https://www.lapeyre.fr/cuisine-CCU0001/meubles-modeles-cuisine-CCN0010). N’hésitez pas à vous rendre dans un de nos magasins Lapeyre, nos vendeurs ont une réelle compétence d'implantation de cuisine.
+##
+4 - L’achat du matériel
+Votre choix se porte sur tel ou tel modèle de [**porte**](https://www.lapeyre.fr/portes-CCU0004), de [**poignées**](https://www.lapeyre.fr/portes-CCU0004/poignees-serrures-CCN0055) ou encore de [**plan de travail**](https://www.lapeyre.fr/cuisine-CCU0001/credences-plans-travail-CCN0013). En effet, l’achat de votre cuisine va se faire suivant vos goûts. Néanmoins, sachez vous entourez. Au-delà des meubles de cuisine à proprement parler, il faut penser à acheter le matériel électrique, de plomberie ainsi que l’électroménager, le sol et la crédence. Sans les fils, les interrupteurs, les tuyaux, les coudes et les joints, votre cuisine ne pourra pas être mise en service. Les conseillers Lapeyre vous accompagnent de A à Z pour faciliter au mieux la réalisation de votre cuisine. L’idée étant d’être parfaitement entouré pour mener à bien son projet.
+##
+5 - Les travaux
+C’est l’étape la plus fastidieuse. Avant de remplacer, il faut détruire l’ancienne cuisine et mettre à nu cette pièce qui a totalement été repensée. Suppression des meubles existants, de la crédence ou encore du sol. Création de saignée pour la pose de gaine électrique, de câblage pour [**l’éclairage**](https://www.lapeyre.fr/cuisine-CCU0001/eclairage-CCN0019), ou encore pour adapter le réseau de plomberie si vous avez éventuellement modifié les arrivées d’eau. Après avoir cassé, il faut reboucher et mettre au propre la pièce prête à accueillir les nouveaux meubles.
+##
+6 - L’aménagement
+Encore un peu d’efforts, il faut désormais peindre les murs de la pièce, poser le revêtement au [**sol**](https://www.lapeyre.fr/sols-murs-CCU0007), fixer et adapter (si besoin) les nouveaux meubles. Encore un peu de courage, il ne vous reste plus qu’à installer le plan de travail, la crédence et l’électroménager. Le service de pose de Lapeyre pourra prendre en charge et contrôler l'installation. Enfin, prenez le temps de tout nettoyer et de ranger vos placards et le tour est joué. Votre nouvelle cuisine est enfin chez vous.

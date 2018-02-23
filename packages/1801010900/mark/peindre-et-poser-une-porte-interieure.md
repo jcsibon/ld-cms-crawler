@@ -1,0 +1,9 @@
+## Préparer votre porte intérieure
+À l’aide d’un tournevis, ôtez les **[poignées](/portes-CCU0004/poignees-serrures-CCN0055/poignees-pour-portes-interieur-CCN0178)** de votre porte intérieure, puis dégondez cette dernière avant de la poser sur des tréteaux. Si vous préférez travailler à la verticale, placez une cale de façon à ce que la porte forme un angle de 45° avec le mur.
+## Lessiver et poncer vos menuiseries intérieures
+À l’aide d’une éponge humide, nettoyez vos menuiseries pour ôter les graisses et les taches résiduelles. Égrenez ensuite le bâti à l’aide d’un [**bloc à poncer**](/bloc-a-poncer-FPC0217060), puis votre porte avec une ponceuse électrique. Privilégiez un mouvement vertical respectueux des fibres du bois. Ôtez les poussières à l’aspirateur.
+Astuce : si vous passez d’une teinte foncée à claire, poncez davantage et appliquez un primaire qui facilitera l’accroche de la nouvelle peinture.
+## Peindre une porte intérieure
+Remuez la peinture et versez-la dans un bac. À l’aide d’un pinceau plat, peignez les chants de votre porte. Munissez-vous d’un rouleau en mousse pour peindre les 2 faces, en prenant soin de croiser les passages afin d’étirer la peinture. Laissez sécher. Appliquez une deuxième couche.
+## Peindre le bâti et poser une porte intérieure
+Protégez les contours de votre bâti – au mur et au sol — avec un adhésif masquant. Utilisez un pinceau rond pour atteindre les angles, l’intérieur du bâti et le pourtour des gonds. Empoignez ensuite un pinceau plat pour les bandeaux. Après avoir passé les deux couches de peinture, ôtez l’adhésif et replacez la porte et ses poignées.

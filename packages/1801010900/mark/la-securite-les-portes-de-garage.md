@@ -1,0 +1,10 @@
+## Système de sécurité anti effraction des portes de garage
+Le meilleur niveau de sécurité est garanti par les portes de garage sectionnelles, enroulables et battantes, grâce à la rigidité et à la stabilité des parois en acier. Certains modèles assurent un degré supérieur de protection avec des systèmes de blocage spécifique, tels que la serrure 7 points de la porte de garage Michigan avec portillon.
+Les[](/porte-de-garage-louveciennes-pliante-bois-exotique-avec-lucarne-FPC2065610)**[p](/menuiseries/portes-de-garage/pliantes/porte-de-garage-louveciennes-pliante-bois-exotique.html)[ortes pliantes isolantes Louveciennes](/porte-de-garage-louveciennes-pliante-bois-exotique-avec-lucarne-FPC2065610)**[](/porte-de-garage-louveciennes-pliante-bois-exotique-avec-lucarne-FPC2065610)et [**Valençay**](/porte-de-garage-valencay-pliante-bois-exotique-FPC2065620) garantissent également un très bon niveau de sûreté grâce à des serrures 5 points.
+Pour les portes avec hublots, choisissez du double-vitrage (portes sectionnelles Michigan) ou des grilles de défense (porte de garage Landon).Pour une sécurité renforcée, pensez à la porte de garage pliante en acier Minessota**.**
+L’installation d’une motorisation de portes de garage offre une protection supplémentaire, avec une fermeture 2 ou 3 points de verrouillage selon les modèles, et une protection électronique de la position fermée.
+![desktop_securiteportegarage_aciernebraska_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300206694/desktop_securiteportegarage_aciernebraska_p1.jpg)
+## Sécurité anti pincement et motorisation de porte de garage
+Avec un équilibrage particulièrement précis et un dispositif anti-pince doigts, la manœuvre des portes de garage sectionnelles se fait en toute sérénité.
+Mais pour être sûr d’éviter tout accident, pensez à un système de motorisation pour vos portes sectionnelles et basculantes ! Une sécurité déclenche l’arrêt immédiat de la porte en cas d'obstacle.
+A savoir : les portes enroulables comportent une motorisation intégrée.

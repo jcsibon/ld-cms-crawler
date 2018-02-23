@@ -1,0 +1,7 @@
+## La porte palière standard dans le cas d’un remplacement total
+Le remplacement total de votre porte palière implique aussi bien le changement de la porte que celui du « bâti » (la partie fixe qui se trouve sur le cadre de la porte).
+Vous n’avez qu’à mesurer les dimensions de la porte que vous souhaitez changer et un vendeur Lapeyre vous indiquera si vous pouvez la remplacer par une porte palière standard ou s’il vous faut du sur-mesure. Dans ce dernier cas, il vous conseillera et vous aidera à commander une porte palière qui sera spécifiquement réalisée pour vous.
+![desktop_portepalieretandardmesure_portesdentree_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300202f8a/desktop_portepalieretandardmesure_portesdentree_p1.jpg)
+## La porte palière sur mesure idéale lors d’une rénovation partielle
+Si vous souhaitez uniquement changer la porte sans toucher au bâti, optez pour nos portes « seules ». Sur-mesure, elles peuvent être recoupées jusqu'à 30 cm en hauteur et 15 cm en largeur. Elles sont livrées sans serrure ni poignée et s’adaptent à votre cadre déjà existant. Une fois les dimensions de votre ancienne porte prises, vous pourrez commander une nouvelle palière blindée en chêne pour renforcer votre sécurité.
+Pour faciliter la prise de mesure de votre porte palière et de son bloc-porte, consultez notre fiche projet !

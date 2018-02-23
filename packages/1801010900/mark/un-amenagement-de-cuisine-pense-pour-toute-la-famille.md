@@ -1,0 +1,11 @@
+## Des appareils électroménagers sous protection
+Conçu pour vous faciliter la vie et la cuisine, un électroménager défectueux ou inadapté peut se révéler extrêmement dangereux. Si vous avez des enfants en âge de toucher à tout, éliminez une source d’inquiétude inutile en dotant votre cuisine d’un équipement sûr.
+Exit le four chaud à portée de main des tous petits, préférez le four **[multifonction encastrable](/four-encastrable-compact-vapeur-approuve-par-frederic-anton-FPC366031)** en hauteur et à porte froide. Occultez les prises électriques grâce au système **[bloc-prises escamotables](/prises-electriques-CCN688180)**. Installez une **[plaque de cuisson à induction](/table-de-cuisson-vitroceramique-beko-FPC3025830)** pour éviter les petites mains curieuses qui se brûlent.
+## Accessibilité : un espace de vie adapté à toute la famille
+Sectorisez votre cuisine en trois parties : point d’eau avec évier et lave-vaisselle, point chaleur avec cuisinière et four et point froid avec le réfrigérateur. Vous créez ainsi les axes de circulation pour éviter les « embouteillages » lorsque vous cuisinez en famille.
+Pensez également à aménager différents espaces de vie commune. Installez un plan de travail confortable pour le cuisinier et pratique pour prendre un repas sur le pouce. Libérez la table pour que les enfants fassent leurs devoirs grâce aux meubles de rangement.
+Et pour éviter les mauvaises surprises, fermez vos placards à l’aide de verrous magnétiques !
+## Les astuces rangement pour une cuisine facile à vivre
+Aidez petits et grands à réaliser les tâches du quotidien. Les seniors retrouvent ainsi leur indépendance et vos enfants découvrent qu’ils peuvent se débrouiller « comme des grands ».
+Placez vos courses dans l’Espace réserve extractible ou dans le meuble Mobilo. Ces rangements se déploient pour révéler tout ce qu’ils contiennent et les rendre accessibles à tous.
+Même chose pour les assiettes et couverts, qui prennent place dans l’espace Repas, tandis que vos plats et casseroles se rangent dans l’espace Cuisson.

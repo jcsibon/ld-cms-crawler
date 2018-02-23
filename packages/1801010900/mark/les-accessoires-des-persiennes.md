@@ -1,0 +1,7 @@
+## Des accessoires de sécurité dédiés aux persiennes
+Pour sécuriser vos persiennes, équipez-les d’une barre de sécurité, amovible ou pliante ainsi que d’une serrure 3 points. Celle-ci vous garantit un verrouillage de l'extérieur et de l'intérieur et est livrée avec deux clés.
+Pour une fenêtre particulièrement exposée, qui donne directement sur la rue par exemple, préférez les persiennes fer sécurité renforcée. Elles sont dotées de crochets de rappel haut et bas sur chaque vantail pour bloquer les volets en position fermée, ainsi que d’un encadrement à quatre barres fixes renforcées.
+![desktop_optionparisiennemetalboispvc_fer_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002060a9/desktop_optionparisiennemetalboispvc_fer_p1.jpg)
+## Lumière naturelle et ventilation avec des persiennes ajourées
+La projection vous permet de vous protéger du soleil et d’un vis-à-vis trop envahissant, tout en laissant circuler l’air dans vos pièces. Privilégiez cette solution pour les fenêtres à l’étage, pour lesquelles le risque d’effraction est moindre.
+L’ajourage est idéal pour les fenêtres en rez-de-chaussée. Pour les persiennes en bois, hormis celles en couleur, l'ajourage se situe en haut de la persienne. Pour les persiennes en fer, il peut être en haut, au milieu ou tout au long du vantail. Et pour trouver les persiennes qui conviendront parfaitement à votre façade, consultez les options de couleurs !

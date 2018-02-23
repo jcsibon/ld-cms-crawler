@@ -1,0 +1,38 @@
+##
+## **Co****mment bien choisir sa porte de douche ?**
+Partie intégrante de votre douche, au même titre que le receveur, les parois de douche et la robinetterie, la **[porte de douche](/portes-parois-douche-CCN688017)** s’adapte facilement à toutes les configurations des pièces d’eau et à tous les goûts. Suivez le guide Lapeyre pour que votre porte de douche corresponde au mieux à l’aménagement et au design de votre **[salle de bains](/bain-CCU0002)** !
+**Quelle porte de douche pour ma salle de bains ?**
+Conçue pour fermer la douche et protéger votre salle de bains des éclaboussures d’eau (voire des inondations), une porte de douche se choisit selon deux critères principaux : les contraintes d’espace d’une part, puis le choix de l’esthétique finale. Les experts Lapeyre vous aident à vous y repérer entre les différents types d’ouverture et les matériaux, pour adapter votre porte de douche à vos volumes et vos envies !
+**QUEL TYPE D’OUVERTURE ?**
+_Guide Lapeyre_ : Pour permettre l’accès à votre douche, il existe différents systèmes d’ouverture avec porte, qui s’adaptent chacun à toutes les configurations de douche, à tous les formats de receveur.
+Quatre types de porte de douche les plus fréquemment utilisés :
+**1. la porte de douche battante** (simple ou double) : s’ouvrant sur l’extérieur, elle nécessite certes une largeur d’ouverture importante devant le receveur, mais offre en retour un espace de passage optimal. Considérée comme la plus pratique, elle est recommandée dans une grande salle de bains.
+**2. la porte pivotante** : comme la porte battante, elle s’ouvre an partie vers l’extérieur mais est une bonne alternative à la recherche de gain de place.
+**3.****la porte coulissante** (à un ou plusieurs volets) : solution gain de place par excellence, elle n’empiète pas sur l’extérieur car ses panneaux se superposent. D’ouverture souvent moins grande, elle est particulièrement adaptée dans les petites pièces d’eau ou pour les douches rectangulaires de grandes dimensions.
+**4. la porte pliante** : idéale également dans les petites salles de bain, cette porte se replie en accordéon pour offrir une ouverture souvent plus large qu’une coulissante, au nettoyage qui plus est plus facile. Plébiscitée il y a quelques années, elle revient sur les bacs de douche et douches intégrées, avec des finitions modernes.
+_Idée Lapeyre :_ Pour une douche placée dans un coin, des portes coulissantes d’angle optimisent l’espace comme l’esthétique, libérant ainsi entièrement l’espace central de votre salle de bains. Et pourquoi ne pas aller jusqu’à choisir un receveur en quart de cercle avec portes coulissantes arrondies ?
+**QUEL MATERIAU ?**
+_Guide Lapeyre_ : Le choix du matériau d’une porte de douche est fonction de vos exigences en matière d’esthétique, de votre budget et du type d’ouverture de la porte. Porte en synthétique ou porte en verre, on vous aide :
+**1. porte de douche en synthétique** : idéal pour les petits budgets, le synthétique (PVC ou acrylique) se décline aussi bien en version transparente qu’en version opaque pour préserver plus d’intimité. La porte synthétique, facile à poser, a tendance à être moins résistante dans le temps que la porte en verre car plus sujette aux rayures : on la choisira pour son prix plus que pour son esthétique.
+**2. porte de douche en verre (simple ou securit)** : d’excellente résistance aux chocs et à la chaleur, le verre se décline à volonté pour s’intégrer à toutes les salles de bain : dépoli, granité, sérigraphié, transparent… Même si sa pose est moins aisée, le résultat en vaut l’effort !
+_NB :_ Si votre budget permet le choix d’une porte en verre, Lapeyre vous recommande la porte de douche en verre Securit sur une épaisseur minimum de 5 mm afin d’éviter tout bris de glace inopportun, et maximum 8 mm pour que vos murs puissent la supporter !
+**QUELLE FINITION ?**
+Une fois le matériau principal de votre porte de douche déterminé, vous pouvez également choisir les profilés, finitions du cadre de fixation:
+\- **finition PVC**, une version économique qui offre une belle palette de coloris unis : blanc, noir ou couleur, mais aussi de coloris proches du métal.
+\- **finition chrome**, une version intermédiaire en terme de budget mais qui nécessite un entretien irréprochable !
+\- **finition aluminium**, la plus moderne mais aussi la plus coûteuse.
+_Idée Lapeyre_ : Pensez également aux gouttières d’étanchéité, fortement recommandées pour les portes pivotantes et battantes afin d’éviter les coulées d’eau au moment de l’ouverture.
+**Conseils d’experts en salle de bains**
+Vous avez choisi la porte de douche qui fermera avec style votre douche ? Il ne vous reste qu’à suivre les conseils des experts Lapeyre pour une pose facile, et quelques astuces pour entretenir votre porte de douche sans effort.
+**POSER VOTRE PORTE DE DOUCHE**
+De dimensions standards ou réalisées sur-mesure, les portes de douche possèdent une amplitude de réglage qui en facilite la pose. Pour installer votre porte de douche, suivez les quelques étapes de vos conseillers Lapeyre :
+**1. la prise de mesure** : primordiale ! Même si les dimensions de votre porte sont données avec une marge, il est nécessaire de bien prendre les cotes de votre ouverture à fermer, entre les murs ou les parois. Si vous avez besoin d’adapter une porte à vos mesures, optez pour une porte de douche coulissante dont le rail peut être raccourci ou une porte sur-mesure en cas de grandes dimensions.
+**2. la fixation des supports latéraux** : à l’aide d’un niveau, fixer les profilés de chaque côté de la douche, ainsi que les rails en haut et en bas. Veillez à utiliser la visserie et les supports adéquats qui résisteront au poids de votre porte de douche.
+**3. la mise en place de la porte** : Pour une porte de douche coulissante, posez un mastic silicone le long des montants et des rails à l’intérieur de la douche (à laisser sécher 24h) avant d’insérer les roulettes dans les rails et de poser tout simplement la porte. Pour une porte de douche pivotante ou battante, maintenez le cadre de la porte dans le profilé à l’aide de cales avant de déposer votre mastic silicone.
+_Côté budget_ : A partir de 85€ pour une porte de douche pivotante ou 99€ pour une porte coulissante en angle, vous trouverez une multitude de portes de douche Lapeyre, selon le type d’ouverture et le matériau choisi.
+**ENTRETENIR UNE PORTE DE DOUCHE**
+Comment nettoyer une porte de douche pour qu’elle reste belle au fil des douches ? Essentiel pour une porte synthétique comme pour une porte en verre, l’entretien de la porte de douche est simple si il est quotidien : après chaque douche, passez une raclette en caoutchouc sur la paroi afin d’éliminer le maximum de traces d’eau et donc d’éviter au calcaire de se déposer.
+Une fois par semaine, appliquez un produit anticalcaire adapté, que vous rincerez à la douche… avant de passer la raclette !
+_Astuces Lapeyre_ : et si vous préférez une astuce de « grand-mère », on vous conseille le meilleur anticalcaire naturel et économique que nous connaissons : le vinaigre blanc, qui fait des merveilles !
+**Lapeyre résume et vous attend en magasin !**
+Facile à monter, la porte de douche se plie à votre budget, vos envies et la configuration de votre salle de bains. En verre résistant ou en synthétique économique, vous avez le choix entre la porte de douche battante ou pivotante pour une assez grande pièce d’eau, coulissante ou pliante dans une espace plus restreint. Quels que soient la forme et le matériau que vous aurez choisis, le modèle de vos rêves se trouve forcément dans nos magasins Lapeyre !

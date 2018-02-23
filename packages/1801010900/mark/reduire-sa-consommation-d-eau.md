@@ -1,0 +1,8 @@
+## La robinetterie influe sur votre consommation d'eau
+La robinetterie ne se contente plus de vous servir l’eau chaude et l’eau froide. Elle vous accompagne aussi dans vos économies d’énergie. Autre innovation : les robinets dotés de deux sorties d’eau. L’une est reliée à l’eau de ville, l’autre à une cartouche de filtration Brita.
+## Une salle de bain avec des mitigeurs intelligents
+Dans la salle de bains, pièce d’eau par excellence, laissez-vous porter par le design du mitigeur petit modèle SPA. Son bec en plexiglas fumé laisse entrevoir un filet d’eau qui s’écoule en cascade… Besoin d’une solution pratique et facile pour disposer d’une douche ? Composés d’un flexible, d’une douchette et d’un support mural, les sets Aquanéo vous permettent d’installer une douche en un tour de main !
+## Réduire sa consommation d’eau avec des WC malins
+Les toilettes n’échappent pas aux économies d’eau. La preuve : le [**WC Alliance**](/wc-a-poser-et-lave-mains-alliance-FPC1237502) propose un lave-mains judicieusement placé sur son réservoir. L’eau de lavage est ainsi réutilisée lors de la prochaine chasse d’eau, en mode 2,7 ou 4 litres. Le mitigeur électro Eurosmart, et le **[robinet](/robinetterie-CCN0015)** Minta Easy Touch se déclenchent quant à eux au contact ou à l’approche de vos mains : ils vous assurent une hygiène irréprochable, mais aussi une consommation au plus près de vos besoins.
+## L’électroménager vous fait faire des économies d'énergie
+Économes en électricité, les **[lave-vaisselle](/lave-vaisselle-CCN0099)** revoient aussi à la baisse leur consommation d’eau. Le modèle intégrable SIEMENS 42 dB tombe ainsi à 5,5 litres seulement pour 13 couverts !

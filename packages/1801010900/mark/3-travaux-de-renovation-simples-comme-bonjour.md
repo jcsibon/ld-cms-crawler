@@ -1,0 +1,10 @@
+## Aménager un espace douche dans la salle de bains
+Privilégiez les **[colonnes de rénovation](/colonne-de-douche-de-renovation-azur-FPC1220350)** ultraconfortables qui se raccordent sur votre robinetterie existante : sortie de douche ou de bain. Vous évitez ainsi les gros travaux de tuyauterie pour équiper facilement votre baignoire d’une colonne de douche ou pour remplacer votre ancienne pomme de douche.
+Les modèles [****Vénus****](/kit-de-douche-venus-FPC1237414), [****Flex****](/colonne-de-douche-de-renovation-flex-FPC1221727), Azur ou Idéa vous offrent tous une pomme large et une douchette à main. La colonne Idéa est même munie d’une petite tablette de rangement…
+## Rénover un escalier sans gros travaux
+Lancez-vous dans la rénovation de votre escalier. Avec le kit de rénovation de marches, vous habillez vos marches usées d’un revêtement neuf. Le kit de rénovation se fixe tout simplement sur vos anciennes marches à l’aide d’une colle. Il s’adapte à la largeur de vos marches, à la forme de votre escalier (droit ou quart tournant). Il vous permet aussi de remplacer votre marche palière et de jouer sur la matière de vos contremarches.
+Côté rampe, vous avez différents modèles à votre disposition pour harmoniser votre rénovation au style de votre pièce.
+## Remplacer vos volets battants avec la solution Réno facile
+Pas besoin d’être un spécialiste lorsqu’on dispose de l’option volet battant Rénofacile**.** Votre volet de rénovation vient sans la quincaillerie, ce qui vous permet de la poser en fonction de l’emplacement de vos gonds.
+Si le bâti existant est trop endommagé, optez pour la solution Bâti Réno. Vous n’avez qu’à visser et régler votre bâti qui s’adapte à toutes les configurations. Le plus ? Il masque la maçonnerie endommagée et assure une étanchéité parfaite entre les vantaux et le bâti.
+Maintenant, c’est à vous !

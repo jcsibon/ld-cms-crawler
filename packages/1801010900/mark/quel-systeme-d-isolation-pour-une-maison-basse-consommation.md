@@ -1,0 +1,11 @@
+## Réussir l’isolation thermique de son logement
+Il existe sur le marché des systèmes performants d'isolation par l’intérieur ou d'isolation par l’extérieur qui permettent la réalisation de maison ou bâtiment basse consommation. Ce sont des systèmes certifiés et validés qui permettent à la fois d'obtenir de fortes résistances thermiques des parois et une parfaite étanchéité à l'air qu'il s'agisse de l'isolation des parois opaques (toitures, murs...) ou des parois vitrées.
+[**Les clés d’une isolation thermique réussie : cliquez ici pour en savoir plus sur la conception bioclimatique d’une maison...**](/c/magazine/outils/outil-confort-thermique-lapeyre)
+![desktop_isolationmaisonbasseconsomation_vario](//statics.lapeyre.fr/img/contrib/2bdd4da300203896/desktop_isolationmaisonbasseconsomation_vario.png)
+##
+## L’étanchéité à l’air de la maison basse consommation
+Réussir l'isolation d'une maison basse consommation s'appuie sur l'équation Forte isolation + Ventilation maîtrisée + Etanchéité à l'air. L'étanchéité à l’air de l'enveloppe dans une maison basse consommation est indispensable :
+\- afin de limiter les **entrées d'air parasite** dans l'habitat, sources indéniables de déperditions calorifiques (renouvellement d'air augmenté de 25%, augmentation des consommations d'énergie) et de désordres dans l'habitat ;
+\- à garantir le bon fonctionnement des systèmes de ventilation.
+Les systèmes d'étanchéité à l'air proposés sont des systèmes validés par Avis Technique du CSTB. Ils sont un véritable enjeu pour garantir [**l'efficacité énergétique**](/c/magazine/pieces-maison/l-efficacite-energetique-des-menuiseries-exterieures)de l'habitat basse consommation ainsi que les économies d'énergie.
+La performance d'étanchéité à l'air d'un bâtiment restitue la qualité de mise en œuvre de l'ensemble des composants et des parois. Elle est mesurée en fin de chantier par infiltrométrie. La valeur mesurée I4 (unité de valeur utilisée pour la réglementation thermique) doit être inférieure à 0.6m3/(h.m²) pour obtenir le label BBC-effinergie.

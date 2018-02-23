@@ -1,0 +1,14 @@
+##
+**Plus qu'un simple élément de confort, la motorisation de votre**[**porte de garage**](https://www.lapeyre.fr/portes-CCU0004/porte-garage-CCN353989) **vous apporte sécurité et fiabilité. Grâce à une motorisation simple ou à la domotique et ce, quel que soit son système d’ouverture, c'est la solution rêvée. Vous hésitez encore ?**
+##  Une manipulation facilitée, un confort renforcé
+Adaptable sur les[portes de garage](https://www.lapeyre.fr/exterieur-jardin-CCU0008/portes-garage-CCN0076) sectionnelles, basculantes (sauf non débordantes) ainsi que certaines portes coulissantes, la motorisation va vous faciliter la vie. Déjà intégrée sur les portes enroulables, elle assure un confort d’utilisation renforcé.
+Une porte de garage motorisée signifie un grand soulagement pour votre dos et un confort maximal en termes de manipulation. Plus besoin de vous fatiguer à lever votre porte basculante motorisée s’ouvre toute seule. Plus de confort, c’est également un espace bien utilisé. En optant pour la porte totalement enroulable, vous profitez au mieux de votre garage et vous pouvez en optimiser les rangements.
+Lors du choix de votre moteur, vérifiez les dimensions maximales qu’il peut tracter. Par exemple, certains moteurs peuvent tracter une porte de 6 m2, tandis que d’autres vont jusqu’à 10 m2. Petit plus, les systèmes motorisés sont silencieux.
+##  Plus rapide que l’éclair
+Plus besoin de descendre de voiture pour ouvrir et fermer votre porte de garage ! D’une simple pression sur la[télécommande](https://www.lapeyre.fr/telecommande-supplementaire-somfy-FPC1774190), le moteur de votre porte de garage se met en marche. La rapidité d’ouverture varie de 20/25 secondes à 10 secondes.
+Inutile de descendre de voiture, d’ouvrir la porte et de remonter dans son véhicule. Tout se commande à distance.
+##  Une ouverture de porte de garage plus sécurisée
+La motorisation de porte de garage offre un éclairage intégré. Vous êtes averti dès qu’une personne entre dans le garage. De plus, la résistance à la poussée du moteur empêche toute effraction. Le blocage du moteur empêche quiconque de rentrer librement chez vous.
+Petit plus, grâce au déverrouillage manuel, vous pouvez ouvrir la porte de l’intérieur en cas de coupure d’alimentation. En option, vous pouvez choisir un contacteur extérieur à clé.
+Pour la sécurité des utilisateurs, les moteurs de portes de garage comportent un dispositif « arrêt sur obstacle » qui garantit un arrêt instantané en cas d’obstacle. Grâce à leur barre palpeuse, les portes de garage motorisées s’arrêtent dès qu’elles entrent en contact avec un quelconque élément.
+Et pour éliminer les risques d’accident, elles disposent d’un parachute qui freine la descente du tablier en cas de rupture… Sans compter la manœuvre de déblocage manuel pour éviter tout désagrément en cas de panne d’électricité.

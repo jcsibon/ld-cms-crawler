@@ -1,0 +1,8 @@
+## Les portes d’entrée en bois une étoile
+Les [**portes d’entrée authentiques en bois exotique**](/porte-d-entree-chevigny-bois-exotique-FPC2021862) vous permettent d’accéder à la qualité dès les premiers prix. Le traitement IFH (Insecticide Fongicide et Hydrofuge) vous garantit un maximum de durabilité pour un minimum d’entretien. Disponibles en 4 dimensions standard H.200/215×L.80/90cm, avec un vitrage de 4 mm, ces portes en méranti ou en tauari disposent de 3 à 6 points de fermeture et sont garanties 10 ans.
+![desktop_porteentreebois_Portebois](//statics.lapeyre.fr/img/contrib/2bdd4da30020de9e/desktop_porteentreebois_Portebois.jpg)
+##
+## Les portes d’entrée en bois deux étoiles
+Les portes d’entrée contemporaines en bois de méranti et les modèles authentiques en méranti ou tauari bénéficient également du traitement IFH et sont disponibles en 4 dimensions standard H.200/215×L.80/90cm. Lasurées, avec un double vitrage de 18 mm et 5 points de fermeture ainsi qu'une garantie de 10 ans, ces portes vous permettent de choisir l’esthétique et la performance.
+## Les portes d’entrée en bois trois étoiles
+Les portes d’entrée en bois trois étoiles contemporaines et authentiques existent en bois exotique comme en [**chêne**](/porte-d-entree-fougeres-chene-menuise-FPC2300141) ou en pin. Alliez la noblesse du chêne à la modernité de l'aluminium avec un modèle proposé en 4 finitions (Naturel, Blanchi, Gris, Noir) et 190 coloris au choix.

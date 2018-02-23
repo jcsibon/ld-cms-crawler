@@ -1,0 +1,11 @@
+## La porte coulissante en verre, une subtile séparation de pièce
+Grâce au système **[Soho](http://www.lapeyre.fr/systeme-coulissant-soho-l73-cm-FPC426157)**, il ne vous faut qu’une heure pour poser le rail de la porte coulissante en applique. Glissez-y ensuite une porte en verre, et laissez opérer le charme des jeux de reflets.
+La porte en verre **[Horizon](http://www.lapeyre.fr/Porte-en-verre-Horizon-pour-systeme-Manhattan-FPC372569)** agrandit une chambre étroite. Nostalgique des rideaux ? Ciblez la [**porte Textile**](/porte-en-verre-textile-pour-systeme-coulissant-manhattan-FPC2360730) en verre trempé, et motorisez-la !
+Dans un vaste salon, privilégiez les cloisons suspendues pour créer une **[séparation de pièce](https://www.lapeyre.fr/separations-pieces-CCN347190)** sans rail de guidage au sol. Les différents modèles de la **[collection Parenthèse](https://www.lapeyre.fr/collection-parenthese-FPC2128270)** se posent en sous-plafond ou en applique. Combinez 1, 2 ou 3 vantaux en verre transparent ou extra blanc et profitez d’un système d’ouverture miroitant qui illumine votre intérieur !
+## Un escalier ajouré pour un design moderne et aérien
+Pour gagner la mezzanine sans alourdir votre décoration d’intérieur, optez pour un escalier au design aérien. Sans contremarches, l’escalier **[métal Urban](http://www.lapeyre.fr/escalier-1-qt-urban-metal-FPC2251110)** arbore un limon central et des marches en hêtre.
+Vous disposez d’une petite pièce ? Les échelles compactes mettent à contribution leur reculement ajustable et leurs finitions pour se fondre dans le décor.
+Autre must ? L'escalier **[Jazz](http://www.lapeyre.fr/escalier-quart-tournant-bas-jazz-FPC426169?xtmc=escalier_jazz&xtnp=1&xtcr=2)**... voyez plutôt !
+![illu_escalierjazz](http://www.lapeyre.fr/img/contrib/2e0a2549ba202ab9/escalier jazz.jpg)
+## Une verrière d'atelier pour faire entrer la lumière
+Comment délimiter sans y paraître l’espace dédié à la cuisine du coin salon ? Lapeyre vous propose une alternative inédite et élégante: la **[verrière d'atelier](https://www.lapeyre.fr/c/magazine/pieces-maison/Une-verriere-d-atelier-source-de-lumiere-et-d-inspiration)**. En jouant la transparence tout en délimitant les espaces, la verrière d'atelier apporte un cachet indéniable à votre intérieur!

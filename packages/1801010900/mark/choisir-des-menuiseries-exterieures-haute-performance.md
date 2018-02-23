@@ -1,0 +1,8 @@
+## Des portes d’entrée à toute épreuve
+Les portes d’entrée contemporaines\*\*\* et authentiques\*\*\* de Lapeyre conjuguent design et confort au quotidien.
+Leur système d’isolation vous garantit une très faible déperdition de chaleur et empêche les nuisances sonores de s’infiltrer. Ces portes d’entrée sont éligibles au crédit d’impôt et à l’éco-prêt à taux zéro (hors portes authentiques\*\*\* conception menuisée).
+Ces portes d’entrée, comme les modèles [**Saumur**](/porte-d-entree-saumur-chene-menuise-FPC2307451) ou [**Linéo**](/porte-d-entree-lineo-bois-exotique-FPC2311571), sont équipées d’une crémone automatique à 6 points de fermeture. Pour les portes d’entrée vitrées, comme les portes [**Beauregard**](/porte-d-entree-beauregard-bois-exotique-menuise-FPC2299691), il s’agit au minimum d’un double vitrage de 20 mm retardateur d’effraction.
+![desktop_FENadapterenovation_packexcellencealubois](//statics.lapeyre.fr/img/contrib/2bdd4da3002081c3/desktop_FENadapterenovation_packexcellencealubois.jpg)
+##
+## Fenêtres et volets isolants : un duo de choc
+Côté fenêtres et baies coulissantes, les Packs Excellence Aluminium, Pack Excellence PVC et Pack Excellence Bois offrent des garanties en termes d’isolation phonique et thermique, sans négliger la sécurité, grâce à leur poignée au système intégré. Accompagnez-les de volets pour plus d’isolation et de sécurité. La pose 2-en-1 ? C’est le bloc volet roulant intégré à la fenêtre ! Disponible en lames PVC ou aluminium, il vous assure une excellente isolation thermique et une sécurité renforcée.

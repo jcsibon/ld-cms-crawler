@@ -1,0 +1,8 @@
+## Les portails en bois plein pour une intimité préservée
+Avec leurs lames juxtaposées, les portails en bois plein ont l’avantage de ne jamais présenter une surface uniforme. Profitez de cet atout esthétique pour adopter un modèle occultant tout en évitant l’effet « mur ». Le   [**portail en bois coulissant Castel**](/portail-battant-bois-castel-gamme-prestige-FPC1711820) ou le modèle **battant Roquebrune** jouent sur le graphisme de leurs lames, notamment avec la couleur brun-rouge du méranti et les contours incurvés de leurs battants.
+Envie de créer la surprise ? Optez pour le   **portail en bois battant Fontaine[](/portail-battant-bois-fontaine-gamme-confort-FPC2223350)**  : il combine l’authenticité du bois à la modernité de 3 tubes inox qui viennent ajourer le haut de vos battants.
+![desktop_portailsenbois_BATTboisconfortfontaine_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020f572/desktop_portailsenbois_BATTboisconfortfontaine_p1.jpg)
+##
+## Les portails en bois ajourés : le traditionnel rehaussé d’une touche de modernité !
+Profitez de l’atout prix Lapeyre en choisissant les portails en bois battants Cannet – modèle incurvé ou en chapeau de gendarme — ou Manosque dont la forme n’est pas sans rappeler le style des barrières champêtres. Pratique : ce modèle est recoupable en hauteur sur 10 cm ! Finalisez avec un portillon bois assorti. Vous pouvez même coordonner votre modèle avec une travée coordonnée dans le cas des portails en bois battants Sancy et Landes.
+Envie de sortir du rang pour surprendre vos voisins et gagner en confort ? Installez un portail en bois coulissant et motorisé !

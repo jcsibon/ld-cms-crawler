@@ -1,0 +1,9 @@
+## Une maison adaptée avec l’ajout d’alarmes
+Lapeyre vous propose une protection à la carte : détecteurs d’ouverture intégrés à votre fenêtre et votre **[porte d’entrée](/portes-CCU0004/portes-entree-CCN0051)**en PVC, capteurs de mouvements et caméras assurent la surveillance de l’ensemble de votre maison, comme des zones spécifiques (garage, jardin, etc.).
+Le pack Protexiom Plus se distingue par sa simplicité d’utilisation : l’alarme est pilotée à partir d’un clavier LCD et enclenchée à l’aide d’un badge. Plus besoin de mémoriser un énième code d’accès ! Surtout, ce système peut être paramétré à distance, depuis votre travail par exemple.
+![desktop_TECHNOgarantitSECUMAIS_grilleDEFmonceau_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020d438/desktop_TECHNOgarantitSECUMAIS_grilleDEFmonceau_p1.jpg)
+##
+## Haute résistance des vitrages grâce au verre feuilleté
+Points sensibles privilégiés par les cambrioleurs, les **[fenêtres](/fenetres-CCU0003)** ont recueilli toute notre attention de fabricant. La parade : le verre feuilleté ! Le vitrage Star Sécurité en verre feuilleté retarde les effractions et réduit également les risques de blessures pour vos proches. Découvrez aussi le vitrage occultant Priva-Lite. Il contient des cristaux liquides qui s’orientent sous l’effet du courant : votre vitrage se fait transparent ou opaque, en un clin d’œil !
+## Un système de sécurité renforcé via de simples accessoires
+Lapeyre propose des accessoires dédiés aux ouvertures : [**grille de défense**](/grilles-defense-CCN0044) pour fenêtres, barre de sécurité pour volets battants ou encore porte palière Securimax. En intérieur, pensez aussi à la sécurité des enfants : joints et poignées de porte anti-pince-doigt et four à porte froide.

@@ -1,0 +1,10 @@
+##
+**Chez Lapeyre, on vous invite à découvrir le**[**plan de travail**](https://www.lapeyre.fr/cuisine-CCU0001/credences-plans-travail-CCN0013) **Velvet. Pièce phare de l’espace cuisine, il séduit les amateurs de design épuré et s’inscrit comme un incontournable du plan de travail pour**[**cuisine**](https://www.lapeyre.fr/cuisine-CCU0001)**. Douceur, modernité et caractère sont au rendez-vous...**
+**Quand la tendance mate s'invite en cuisine**
+Pour l’aménagement d’un plan de travail en cuisine, la grande tendance est aux couleurs mates. On les retrouve en déco dans la maison, sur les meubles de cuisines et aussi sur les plans de travail. Cet élément central qu’est le plan de travail définit l’identité décorative de l’espace cuisine, espace qui se doit d’être à la fois convivial et pratique. Promesse tenue avec le[plan de travail Velvet](https://www.lapeyre.fr/plan-de-travail-stratifie-velvet-FPC473016). Ses coloris et son design épuré dynamisent les cuisines et apportent la convivialité tant attendue.
+**Plan de travail Velvet : une touche velouté et originale**
+Et si pour l’aménagement du plan de travail de votre cuisine vous optiez pour des teintes mates et affirmées ? Le plan de travail Velvet se choisit parmi plusieurs coloris. En jaune safran ou blanc pour un effet lumineux, en vison, bleu canard ou noir mat peut apporter de la profondeur et une élégance intemporelle.
+Facile à entretenir, le plan Velvet se nettoie, comme tous les plans de travail stratifiés, avec une éponge humide et des produits d’entretien classiques. 4 épaisseurs sont disponibles : 28 et 38 mm (avec un chant plat épais) ou 60 et 90 mm (avec un chant plat fin).
+Côté formes, le plan de travail Velvet peut être courbé, avec une table en sifflet ou à angles arrondis, avec un plan à pan coupé.
+Besoin de conseils et d’astuces d’experts pour l’installation et l’aménagement d’un plan de travail de cuisine ? Jetez un œil à notre[tuto vidéo](https://www.lapeyre.fr/c/magazine/preparer-projet/poser-un-plan-de-travail-en-cuisine).
+![](//cdn.thinglink.me/api/image/792743144591458304/1024/10/scaletowidth#tl-792743144591458304;1043138249')

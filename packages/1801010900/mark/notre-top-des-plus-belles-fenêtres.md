@@ -1,0 +1,26 @@
+##
+# **Notre top des plus belles fenêtres !**
+Recherche de luminosité, d’esthétisme, de déco, d’une touche personnelle… les fenêtres font partie intégrante des choix d’ambiance de nos maisons, de nos pièces. Pour vous aider à choisir les fenêtres qui correspondent à vos goûts, vos besoins et vos envies, nos experts conseils Lapeyre vous font découvrir leurs coups de cœur fenêtres !
+##  1. FENETRES SUR MESURE : tout est possible
+Imaginer la conception de sa nouvelle maison, rénover une habitation ancienne, remplacer ses fenêtres, créer une nouvelle ouverture… Le champ des possibilités est large quand on évoque les besoins en fenêtres. Fenêtres en bois, en PVC, en alu, fenêtre battante, baie vitrée, porte-fenêtre… Grâce au sur-mesure, tout est désormais possible : faites entrer la lumière dans votre maison à l’image de ces maisons ultra contemporaines où les fenêtres ont priorité sur les murs !
+Nos experts Fenêtres Lapeyre vous livrent quelques unes de leurs expériences en conception de fenêtres : leurs idées pour vos envies…
+- Installer des **baies coulissantes en aluminium** vers le jardin : la finesse de l’aluminium permet d’oublier la présence des montants de fenêtres et d’inviter directement le jardin dans son intérieur. Pour plus de hauteur dans les habitations hautes de plafond, on peut ajouter une imposte haute pour éviter une baie trop lourde.
+- Percer un mur de façade d’une **longue ouverture vitrée contemporaine** fixe : on laisse entrer la lumière en milieu ou haut de mur en incluant la fenêtre dans la conception du mur.
+- **Des baies vitrées en bois** qui reprennent les couleurs d’essence du jardin paysager pour jouer la carte du indoor/outdoor et vivre en toute saison « au vert » !
+- Remplacer les murs du séjour ou de la véranda par de **larges fenêtres oscillo-battantes** pour ouvrir la vue sur l’extérieur et baigner votre intérieur de lumière du jour.
+- **Jouer sur les formes** en surmontant vos fenêtres d’un triangle vitré, en installant un œil-de-bœuf ouvrant, ou en osant l’authenticité des fenêtres plein cintre.
+- Laisser courir **une fenêtre toute en longueur** pour bénéficier d’une vue panoramique sur un jardin, un coteau ou une façade maritime.
+#
+##  2. LES FENETRES ET BAIES SUR-MESURE LAPEYRE EN COULEURS !
+###  Excellence PVC, élargissez vos possibilités
+**_Chassez vos a priori sur le PVC_** en consultant notre dossier et laissez vous séduire par notre [gamme Excellence PVC sur-mesure](https://www.lapeyre.fr/fenetre-excellence-pvc-FPC511297) qui allie élégance et confort optimal. Son design moderne ainsi que sa haute isolation thermique et phonique rendront votre quotidien plus agréable.
+Pour s’adapter à votre décoration, vous pouvez harmoniser toutes vos couleurs extérieures mais garder un blanc en intérieur grâce à la bicoloration. 156 couleurs, pleines, neutres, vives, chaudes ou froides, claires… mais aussi des teintes effet bois.
+Cintrée, triangle, œil-de-bœuf ou trapèze, toutes les formes sont possibles pour créer des effets de style dans votre intérieur.
+###  Excellence BOIS : pin ou chêne, lasuré ou en couleur !
+Retrouvez toute l’authenticité du bois avec notre [gamme de fenêtres sur-mesure Excellence](https://www.lapeyre.fr/fenetre-performance-bois-pin-ou-chene-FPC2395300), qui offre à votre façade un aspect à la fois noble et chaleureux. Conservez l'essence naturelle de pin sylvestre ou de chêne d’Europe éco-certifié ou personnalisez avec l'une des 4 finitions lasurées ou 156 couleurs à la carte en mono ou bicoloration, pour des combinaisons à l’infini.
+Nombreux choix de formes, d'ouvertures de menuiserie, et d'options de personnalisation pour que vos fenêtres en bois se coordonnent à volonté dans toutes les pièces de votre maison.
+###  Excellence ALUMINIUM : place à la lumière !
+Profitez d’un maximum de luminosité grâce à nos [fenêtres et baies vitrées aluminium Excellence](https://www.lapeyre.fr/fenetre-performance-aluminium-FPC2326760) aux profilés fins assemblés par sertissage. Elégance, modernité, design à l’infini pour des fenêtres aux nombreux labels qualité : origine France garantie, Acotherm, CEKAL, Qualicoat et Qualimarine.
+Nombreux choix de formes, d'ouvertures de menuiserie, et d'options de personnalisation pour que vos fenêtres en aluminium se fondent dans votre intérieur comme elles personnaliseront vos façades.
+**_Fenêtres cintrées et formes spéciales, découvrez notre savoir-faire Lapeyre en images (page 41 catalogue, 4 photos avec fléchage)_**
+**En magasin, nos vendeurs conseillers Lapeyre pourront vous guider avec précision sur votre projet de changement de fenêtres et balayer avec vous toutes les possibilités adaptés à votre habitation. Pour préparer votre visite, découvrez nos dossiers [_10 questions à se poser avant de changer de fenêtre_](https://www.lapeyre.fr/c/magazine/inspirations-tendances/questions-%C3%A0-se-poser-avant-de-changer-ses-fen%C3%AAtres)et_[Quelle poignée pour mes fenêtres.](https://www.lapeyre.fr/c/magazine/inspirations-tendances/Bien-choisir-ses-poign%C3%A9es-de-fen%C3%AAtre)_**

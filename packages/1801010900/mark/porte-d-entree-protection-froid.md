@@ -1,0 +1,11 @@
+##
+**Pour éviter que sa**[**porte d’entrée**](https://www.lapeyre.fr/portes-CCU0004/portes-entree-CCN0051) **ne devienne une vraie passoire et laisse passer l’air l’hiver, on met tout en œuvre pour se protéger au mieux du froid. Isolation, joint, serrure, on pense à tout pour que l’air ne s’infiltre plus chez nous.**
+##  Miser sur la bonne isolation
+##
+Isoler ses murs et sa toiture, c’est le réflexe que l’on a tous. Mais a-t-on pensé à sa[porte](https://www.lapeyre.fr/portes-CCU0004) d’entrée ? Dans une maison, elle fait le lien direct avec l’extérieur. En cas de mauvaise isolation, non seulement vous subirez les désagréments causés par l’air frais qui s’engouffrera dans votre maison, mais vous verrez votre facture d’électricité grimper à cause de cette déperdition de chaleur. Pour conserver une bonne température, mieux vaut opter pour une parfaite isolation thermique. Si l’on change sa porte, on choisit un modèle avec un parfait rendement en termes d’isolation. Au contraire, si vous souhaitez conserver la porte existante, pensez à la calfeutrer et à changer la vitre si elle est équipée d’un simple vitrage. Enfin, cachez le bas de votre porte à l’aide d’un boudin textile ou d’une plinthe automatique.
+##  Veillez aux joints
+##
+Collés entre le cadre et le battant de sa porte, les joints assurent l’hermétisme de cette dernière. Si les joints sont abîmés, leur efficacité n’en sera que diminuée. L’air passe et le froid s’installe. Il faudra alors les changer. Selon l’espace à combler, vous pouvez vous diriger vers des joints adhésifs en polyuréthane ou en profil V. Plus performants, les joints métalliques seront plus efficaces et durables dans le temps. Sachez que vous pouvez également opter pour des joints en silicone ou des bourrelets en mousse PVC. Des solutions performantes idéales pour les joints de plus de 6 millimètres.
+##  L’importance de la serrure
+##
+On n’y pense pas toujours, mais la serrure peut, elle aussi, laisser passer l’air. Trop grosse ou mal conçue, elle peut être à l’origine de courants d’air bien désagréables. Pour se protéger au mieux du froid l’hiver, mieux vaut bien la choisir. La solution ? Sélectionner un modèle avec un petit trou. Ainsi vous minimiserez l’intrusion du froid et limiterez la déperdition de chaleur par la même occasion. Une précaution qui peut avoir son importance et faire la différence.

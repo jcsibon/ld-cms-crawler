@@ -1,0 +1,10 @@
+##
+**Qu’il soit standard, à la carte ou sur-mesure, Lapeyre réalise l’**[**escalier**](http://www.lapeyre.fr/escaliers-CCU0006/escaliers-interieur-CCN0227) **qui vous convient en fonction de vos délais, de vos contraintes et de vos besoins.****L’escalier standard :** **délais plus courts et solutions gain de place.**
+L’[escalier](https://www.lapeyre.fr/escaliers-CCU0006) standard ne limite pas votre choix pour autant. Chez Lapeyre, plus de 70 modèles sont disponibles. Idem côté marches, limons ou[rampes](https://www.lapeyre.fr/escaliers-CCU0006/rampes-balustrades-CCN0067).
+De plus, sachez que nos escaliers en bois sont fabriqués en France dans notre usine.
+Recoupables, ils s'adaptent à la configuration de votre pièce. Selon sa situation, le choix d’un escalier sans contremarche, par exemple, offrira une plus grande luminosité, mais une isolation intérieure moindre. Vous pouvez également opter pour un design résolument original et contemporain avec l'escalier[Jazz](https://www.lapeyre.fr/escalier-droit-jazz-FPC426165) sans nez de marche.
+![escalier std ou sm 1](http://www.lapeyre.fr/img/contrib/326fe2b011800900/201619085.jpg)
+##  Le sur mesure, pour un escalier à vos dimensions
+L’escalier sur mesure en bois ou en métal est fabriqué selon vos contraintes dimensionnelles. Avec cette solution, vous choisissez entièrement votre escalier et l’adaptez au mieux à votre intérieur.
+Pour vous guider, différentes solutions vous sont proposées. Optez pour un confort maximum à marches balancées par exemple. Ce concept adoucit la pente de votre escalier grâce à un nombre de marches plus élevé.
+Avant de vous rendre en magasin, il est important de prendre quelques mesures. Profondeur, hauteur et largeur désirées. Des mesures qui vous permettront d'obtenir un premier devis avant d'être confirmées par un poseur.

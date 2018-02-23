@@ -1,0 +1,6 @@
+## L’univers de Jessica, une porte ouverte sur les bonnes idées aménagements et décoration
+[![encadré réseaux sociaux Jessica](http://www.lapeyre.fr/img/contrib/2e0a2549ba20b909/encadré réseaux sociaux.png)](http://www.aventuredeco.fr/)Pour Jessica, qui confesse volontiers « ne jamais s’arrêter », l’**aménagement d’intérieur** et la **décoration** doivent rester accessibles et simples.
+Départ imminent : suivez Jessica dans ses **rencontres avec des passionné(e)s** de décoration, de bricolage et d’aménagement. Glanez-y des idées, des conseils, et en bonus... profitez de la bonne humeur communicative de Jessica !
+Jessica, en « envoyée spéciale » pour Inspir&vous by Lapeyre, c’est aussi une visite au **[salon Maison&Objet](https://www.youtube.com/watch?v=O5LF1mfC-h4)** de cette année.
+## D’autres bonnes idées pour un intérieur toujours mieux aménagé
+Retrouvez toute l’actualité de ce partenariat sur nos pages [**Facebook**](https://www.facebook.com/Lapeyre/info/?tab=page_info), [**Instragram**](https://www.instagram.com/lapeyreofficiel/), ou [**Pinterest**](https://fr.pinterest.com/lapeyre/) : suivez-nous pour ne pas en perdre une miette !

@@ -1,0 +1,10 @@
+## Des parois personnalisables pour une douche sur mesure
+Pour être au plus près de vos besoins, Lapeyre propose une vaste gamme de [**portes et** **parois de douche** **sur mesure**](/portes-douche-CCN0126). Vous choisissez la hauteur, la largeur, la découpe spécifique (en biais ou en angle), ainsi que la finition du verre et des profilés.
+Nichez une douche sous des combles ou contigüe à une baignoire, installez une vaste douche à l’italienne : tout devient possible ! La douche à l’italienne s’avère ainsi une solution pratique pour les espaces étroits avec la possibilité de découper le receveur à carreler.
+![desktop_solutionsdouchesurmesure_lineprestige_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300201728/desktop_solutionsdouchesurmesure_lineprestige_p1.jpg)
+## Une paroi de douche très tendance avec Influence et Line Prestige
+Vous avez de la place ? Profitez-en : Lapeyre a développé une offre spécifique pour les salles de bain de grands volumes. Avec **Influence**au vitrage zébré et **[Line Prestige](/parois-de-douche-line-prestige-FPC284637)**, la douche devient un moment d’exception !
+Leurs atouts ? Les multiples configurations possibles : accès libre (sans porte), porte de douche battante ou pivotante, porte en forme de vague,bacs à douche adaptés, et bien sûr les dimensions et les finitions de votre choix.
+## Le service Lapeyre pour composer une douche à vos mesures
+Pour toute demande de douche sur mesure, rendez-vous dans un magasin Lapeyre**.**
+Un vendeur-conseil réalise gratuitement l’étude chiffrée de votre projet. Indiquez-lui les dimensions exactes de votre espace et ses particularités (mobilier, toit en pente, fenêtres, canalisation, radiateur, etc.) pour un résultat 100 % personnalisé. Et pour vous assurer une tranquillité parfaite, faites appel à notre service d’installation à domicile !

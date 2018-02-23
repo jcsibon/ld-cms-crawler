@@ -1,0 +1,10 @@
+## Les précautions à prendre pour poser une porte coulissante
+Veillez à ce qu’il y ait un espace suffisant à droite ou à gauche de votre encadrement pour accueillir votre [**porte coulissante**](/portes-CCU0004/portes-interieur-CCN0085/portes-coulissantes-CCN0170) sur toute sa largeur. Vérifiez électrique ne passe dans le mur au-dessus de la porte.
+## Les fixations du rail de votre porte coulissante
+Pour [**installer une porte coulissante en applique**](/systeme-coulissant-avantage-en-applique-FPC2251640), faites un repère à 45 mm au-dessus de l’encadrement : vous obtenez l’horizontale de votre rail (tube inox). Marquez un premier point de fixation à 120 mm du bord gauche de l’encadrement, puis échelonnez vos repères pour répartir les fixations le long du rail. Évaluez l’horizontalité de votre ligne au niveau à bulle. Percez, insérez les chevilles et les fixations. Enfin, glissez le rail que vous aurez recoupé au besoin.
+![desktop_poserporteCOUL_parentheseXL_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020e2bc/desktop_poserporteCOUL_parentheseXL_p1.jpg)
+##
+## La fixation des roulettes de votre porte coulissante
+Dévissez le système de dégondage des roulettes. Percez votre porte au centre de son épaisseur, et à 110 mm de chaque bord : installez les roulettes. Positionnez votre porte sur le rail pour repérer l’emplacement du guide de sol. Fixez ce dernier à la perceuse, ou à la colle en cas de plancher chauffant. Revissez le système de dégondage. Ajoutez les butées sur le rail et montez le kit **[poignée](/portes-CCU0004/poignees-serrures-CCN0055/poignees-pour-portes-interieur-CCN0178)** : c’est fini !
+## Les finitions pour que vos portes coulissantes soient parfaites
+Certains systèmes intègrent un bandeau d’habillage en alu ou en bois prêt-à-peindre pour masquer le rail. Vous pouvez ajouter une serrure, une motorisation ou même un détecteur de présence. Si vous envisagez la pose d’un système coulissant à galandage, suivez nos Solutions d’experts !

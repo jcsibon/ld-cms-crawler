@@ -1,0 +1,9 @@
+## Les différents mitigeurs de la salle de bains
+Un mitigeur met la touche finale à la déco de votre salle de bain. Vous avez l’embarras du choix, par exemple avec le modèle **[Totem](/mitigeur-lavabo-totem-petit-modele-FPC1221750)** tout en rondeur ou le mitigeur de lavabo Aura, petit ou grand modèle. Pour accompagner une vasque à poser, découvrez notre gamme de mitigeurs grands modèles, de l’épuré **[Saigon](/mitigeur-lavabo-saigon-petit-modele-FPC1612470)** au plus raffiné **[Jade](/mitigeur-lavabo-jade-grand-modele-FPC1611914)**.
+## Un mitigeur thermostatique pour la sécurité
+Pour votre douche ou baignoire, les mitigeurs thermostatiques possèdent une manette pour contrôler la température de l’eau et une autre pour le débit. Parfaits pour les familles, ils permettent d’obtenir la température souhaitée dès l’ouverture du robinet et une sécurité les empêche de dépasser 38 °C.
+## Un mitigeur de lavabo pour tous les budgets
+Il existe des mitigeurs pour toutes les bourses, du modèle le plus économique Primea au chic Diamant. Prenez cependant en compte l’usage intensif que vous faites d’un mitigeur.
+## En matière de robinetterie, il n'y a pas de petites économies
+Pour économiser l’eau, les mitigeurs à double butée offrent une résistance sur le parcours de la manette et permettent d’obtenir le débit réellement nécessaire. Idéal pour les personnes à mobilité réduite, les enfants ou pour faire des économies au quotidien, le mitigeur Eurosmart cosmopolitan est doté d'un système infrarouge qui stoppe automatiquement le débit d'eau après 60 s.
+Dans la douche, retrouvez les gammes de kits de douche et colonnes avec l’option éco-stop qui coupe le débit tout en conservant la température souhaitée.

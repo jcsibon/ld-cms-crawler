@@ -1,0 +1,7 @@
+## Des portes de garage basculantes, solides et isolantes
+Le matériau le plus répandu pour les [**portes de garage basculantes**](/Portes-de-garage-basculantes-CCN367537) est l’acier. Il garantit sécurité et isolation. Pour une touche boisée, optez pour la [**porte de garage Multiplis**](/porte-de-garage-multiplis-basculante-debordante-FPC0270620) en oukoumé.
+Avant d’installer une porte basculante, veillez à disposer du dégagement suffisant. Certains modèles n’empiètent pas sur l’extérieur.
+![desktop_portesgaragebasculante_basculantenoviso_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300206266/desktop_portesgaragebasculante_basculantenoviso_p1.jpg)
+## Des portes de garage basculantes personnalisables
+Disponibles en standard ou sur mesure, les portes de garage basculantes sont toutes motorisables. Des modèles, comme la porte de garage Noviso, peuvent être totalement personnalisés : ajout de portillon, de carreaux, choix du moteur, du décor, des couleurs…
+N’oubliez pas de visiter nos autres guides consacrés aux portes de garage : portes sectionnelles**,** portes de garage enroulables**,** en accordéonou encore**[battantes](/exterieur-jardin-CCU0008/portes-garage-CCN0076/portes-garage-battantes-CCN0213)**…Notre gamme se plie à toutes vos envies !

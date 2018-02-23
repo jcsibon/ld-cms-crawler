@@ -1,0 +1,8 @@
+## L’atout sécurité d’une porte palière
+La sécurité est un critère décisif au moment d’acquérir une porte palière 3 points. Pour une protection maximale contre les effractions, optez pour une [**palière renforcée**](/porte-renforcee-et-recoupable-chene-a-vernir-FPC0549760) dotée d’un renfort en acier et d’une serrure à 3 points de fermeture.
+Contre le risque d’incendie, Lapeyre vous propose des [**portes agrées « coupe feu »**](/bloc-porte-palier-coupe-feu-sipo-a-vernir-1-point-FPC0547031), qui vous protègent jusqu’à une heure contre le feu. Pour renforcer votre porte, faites votre choix parmi notre gamme de verrous et serrures.
+## La porte palière, votre alliée contre le bruit
+Votre porte palière représente le premier rempart contre les nuisances extérieures. Vous êtes sensible au bruit, et votre porte donne sur une pièce à vivre ? Optez pour une porte isophonique qui permet un affaiblissement acoustique jusqu’à 42 décibels. Si votre porte donne sur un couloir ou un vestibule, une porte palière 28 décibels suffit.
+## Une porte palière d’appartement, et de style !
+Sécurité ne rime pas forcément avec austérité ! Votre porte palière donne une première impression à un visiteur : ne négligez donc pas son aspect esthétique. Vous pouvez installer une porte pré-peinte qui recevra la couleur de votre choix, ou même opter pour un modèle totalement sur-mesure.
+Vous trouverez également des portes palières menuisées en bois. Plus chaleureuses, elles allient résistance et finition esthétique (disponibles en bois de chêne ou exotique).

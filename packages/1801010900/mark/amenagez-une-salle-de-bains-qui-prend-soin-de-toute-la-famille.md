@@ -1,0 +1,9 @@
+## Un carrelage au sol sécuritaire
+Le sol s’avère souvent l’élément le plus dangereux dans la salle de bain. L’humidité peut rendre un carrelage non adapté très glissant.
+Évitez les risques d’accident des membres de la famille dont la mobilité est réduite en optant pour la pose d’un [**carrelage**](/carrelages-salle-bains-CCN0183) antidérapant. Auréa, Architekt ou Avatar sont des modèles non glissants qui ne négligent en rien le designs de votre salle de bain.
+Autre précaution intelligente : l’installation d’un r**[eceveur à carreler](/receveur-a-carreler-next-FPC1240922)**type Déco ou I-Teck pour aménager une douche de plain-pied. Si l’espace vous manque, vous pouvez opter pour un bac à douche extra-plat et antidérapant, comme les modèles carrés ou quart de cercle   Néo, Artic ou Alpha  . Leur faible hauteur réduit le risque de trébucher au moment d’entrer dans la douche.
+![desktop_bienchoisirsesmeublessdbdispo_vasqueCuadro_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020397f/desktop_bienchoisirsesmeublessdbdispo_vasqueCuadro_p1.jpg)
+## Des meubles de salle de bain pratiques et encastrables
+La mobilité dans une salle de bain dépend également de son encombrement. Plus vous multipliez les meubles, notamment au sol, plus vous compliquez le mouvement des personnes qui se déplacent avec difficulté.
+Pour un gain de place, vous pouvez privilégiez les meubles-vasques tels que les modèles Focus ou Studio. Les rangements deviennent plus simples, n’occupent pas de place inutile et surtout, libèrent le sol de toute embûche.
+Enfin, pour vos proches qui risquent de perdre l’équilibre, n’hésitez pas à installer un siège de douche et une barre droite de maintien ou une barre coudée pour sortir plus aisément du bain ou de la douche.

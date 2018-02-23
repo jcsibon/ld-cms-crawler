@@ -1,0 +1,12 @@
+##
+**Entre le bois, le PVC ou l’aluminium, difficile de choisir le matériau pour ses**[**volets**](https://www.lapeyre.fr/fenetres-CCU0003/volets-CCN0042)**. En fonction de ses besoins, de ses envies et de son budget, une solution peut s’imposer.**
+## **On fait le point pour y voir plus clair**
+C’est l’un des équipements importants pour la maison. Aussi bien en terme d’isolation, de sécurité, et même d’esthétisme. Mais avec les différents matériaux qui s’offrent à nous, leurs propriétés, leurs finitions, et leurs prix… Il n’est pas toujours évident de s’y retrouver ! Chacun des matériaux disposent de différents avantages plus ou moins pertinents, selon ses besoins. Avant de se lancer, il est important de se poser les bonnes questions afin de cerner au mieux ses attentes. Explications.
+![volet ip 1](http://www.lapeyre.fr/img/contrib/326fe2b0118002a8/200615367.jpg)
+##  Le bois, entre tradition et sécurité
+Disponible dans différentes essences de bois, il se personnalise (presque) à volonté. Choix des formes, des couleurs et des finitions, le bois laisse carte blanche. Pratique, il s’adapte à toutes formes d’ouverture et offre une parfaite isolation aussi bien thermique, qu’acoustique. Esthétique, il est également performant en terme de sécurité. Seul bémol, son prix. Malgré des bois plus ou moins chers, ce type de volet est moins compétitif que les modèles en aluminium ou PVC. Autre élément à prendre en compte : son entretien. Contrairement aux deux autres matériaux, le bois demande d’être lasuré tous les 2 à 3 ans.
+##  Le PVC, isolant et bon marché
+Le volet en PVC est la solution pour les petits budgets. Plutôt bon marché, il offre une très bonne isolation thermique et acoustique et ne présente aucune contrainte d’entretien ! Côté personnalisation, le choix des couleurs est plus restreint et les finitions plus classiques. Autre point à souligner : même s’il est un peu moins résistant aux infractions que le bois ou l’aluminium, il se défend plutôt bien.
+![Volet 2](http://www.lapeyre.fr/img/contrib/326fe2b0118002b1/201105688.jpg)
+##  L’aluminium, durable et moderne
+C’est l’as des as en matière de sécurité et de durabilité. Solide, inoxydable, résistant aux intempéries et à la corrosion, il offre une très grande longévité et demande peu d’entretien. Autre point fort, son large éventail de couleurs disponibles. Seul bémol, il offre une isolation thermique et acoustique plus faible que pour le bois et le PVC. Côté prix, il se situe entre les deux autres matériaux. Avez-vous fait votre choix ?

@@ -1,0 +1,10 @@
+## L’entrée de la maison, passage de l’extérieur vers l’intérieur
+L’entrée de la maison est la première zone de passage qui permet à votre intérieur de vivre une relation harmonieuse avec l’extérieur. La [**porte d’entrée**](/portes-CCU0004/portes-entree-CCN0051) en est l’un des ingrédients fondamentaux. Il faut qu’elle soit isolante, garante de sécurité et accueillante. Les portes en aluminium performance 3\* Mikado, Arizona, Kansas ou Manhattan offrent l’équilibre idéal entre design et performance.
+Pour une entrée pleine de commodité et de style, n’oubliez pas d'installer un auvent ou une [**marquise**](/auvents-marquises-CCN0056). L’auvent contemporain Minoa, doté d’une baguette lumineuse à LED,vous protège de la pluie et éclaire votre porte pour plus de confort nocturne.
+![desktop_creerespacevie_voletconfort_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020ccda/desktop_creerespacevie_voletconfort_p1.jpg)
+##
+## La baie vitrée, vue sur le cadre extérieur
+Remplacez une simple porte d’accès vers votre jardin, votre parc ou votre terrasse par une [**baie coulissante**](/fenetres-CCU0003/baies-coulissantes-CCN0038). Grâce à la baie coulissante Performance Aluminium aux profilés fins, la nature s’invite dans le salon et devient rapidement accessible. Pour encore plus de confort, optez pour la baie coulissante à galandage qui disparaît entièrement dans votre mur.
+## L’escalier extérieur, accès supplémentaire
+Lorsque toute votre maison dépend d’une unique porte extérieure ou d’un seul escalier d’extérieur, la circulation s’en trouve vite compliquée. Une excellente manière de résoudre ce problème et d'ouvrir davantage sur l'extérieur consiste à installer un escalier en acier galvanisé New York ou Nova.
+Cette nouvelle sortie vous permet de multiplier les accès pour répondre à vos différents besoins.

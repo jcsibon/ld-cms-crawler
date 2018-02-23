@@ -1,0 +1,10 @@
+## Solution Réno et Rénotop : la rénovation de portes facile !
+Changez vos portes déformées par l’humidité ou abîmées par l’usage. Rénovez-les sans plus tarder et sans vous lancer dans de lourds travaux. La solution ? Nos portes Réno !
+La [**Solution Réno**](/c/magazine/autour-de-lapeyre/renofacile-simplifie-vos-travaux-de-renovation) est la possibilité de faire adapter une porte neuve standard dans les ateliers Lapeyre sur le modèle de votre ancienne porte, pour la remplacer sans effort.
+Cette solution n’est valable que lorsque votre bâti est en bon état. S'il est endommagé, optez pour la Solution Rénotop : vous faites alors adapter votre nouvelle porte et masquez l’huisserie ancienne à l’aide du bâti Rénotop qui vient se coller dessus. Tout simplement…
+![desktop_renovationmaison_voletconfort_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020c994/desktop_renovationmaison_voletconfort_p1.jpg)
+##
+## Une solution simple pour chacun de vos travaux de rénovation
+Avec le [**kit rénovation marches**](/kit-de-montage-pour-renovation-de-marche-FPC2292700), vous rénovez un escalier endommagé en collant marches et contremarches sur les anciennes.
+Vous pouvez également laisser parler vos envies en rénovant un revêtement de sol. Couvrez un plancher en mauvais état ou un carrelage démodé à l’aide d’un [**sol stratifié**](/sols-murs-CCU0007/sols-stratifies-CCN0072). La gamme de produit Factory, par exemple, est disponible en différentes couleurs : naturel, sable, ou encore gris. Le sol stratifié Classic Plus avec son seuil 5 en 1 vous permet notamment de réaliser une jonction parfaite entre vos sols.
+Enfin, vous pouvez décider de refaire votre salle de bains à l’aide des panneaux à carreler Creapano, Evolution et Premium. Étanches et imputrescibles, ils peuvent être carrelés, tapissés ou peints selon l’effet recherché.

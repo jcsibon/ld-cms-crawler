@@ -1,0 +1,11 @@
+## Meubles de cuisine: renouvelez le mobilier nomade
+Pour moderniser une déco cuisine, nul besoin de décrocher vos meubles. Il suffit de changer les plus remuants d’entre eux ! À commencer par les chaises. Lapeyre a sélectionné la gamme de tabourets et de chaises Luisina : sa ligne ultra tendance, ses matières translucides et ses coloris vitaminés réveillent les cuisines les plus assoupies ! Les **[étagères Box](/cuisines/meubles/meubles-contemporains/elements-complementaires/elements-complementaires-decors-tranversaux-etageres)**, si faciles à installer se combinent de façon verticale ou horizontale. Mo-du-lez ! Finalisez le relooking avec de nouvelles **[poignées et vos boutons de porte.](/cuisine-CCU0001/kitchenettes-CCN0012)**
+![desktop_quelleideerelookerPERSOCUIS_ACCcredence_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020dbeb/desktop_quelleideerelookerPERSOCUIS_ACCcredence_p1.jpg)
+##
+## Eclairage intérieur : changez de point de vue en cuisine
+Donnez un coup de projecteur sur les atouts de votre cuisine pour mieux laisser dans l’ombre ses faiblesses. La belle modularité des **[luminaires de cuisine](/cuisine-CCU0001/kitchenettes-CCN0012)** à LED vous permet de façonner une mise en lumière personnalisée de votre pièce. **[Tablette en verre lumineuse](/cuisine-CCU0001/eclairage-CCN0019)**, **[éclairage intérieur de votre casserolier](/dessous-de-meuble-eclairant-FPC3018890)** et **[dessous de meuble éclairant](/dessous-de-meuble-eclairant-FPC3018890)** redonnent du peps à une cuisine fatiguée. Et comptez sur les **[barrettes à LED](/colis-3-barrettes-led-FPC1208800)** pour styliser l’étagère la plus anodine !
+Pour aller plus loin:
+- [**Crédence et étagère**](/c/magazine/pieces-maison/bien-choisir-une-credence-et-des-etageres)
+- [**Un design brillant 100% métal**](/c/magazine/inspirations-tendances/)
+- [**Pleins feux sur la cuisine !**](http://www.lapeyre.fr/c/magazine/pieces-maison/pleins-feux-sur-l-eclairage-de-cuisine)
+- **[**Quand le rangement est design**](/c/magazine/inspirations-tendances/)**

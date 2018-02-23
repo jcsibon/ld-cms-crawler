@@ -1,0 +1,7 @@
+## La simplicité des portes intérieures postformées
+Les portes postformées s’habillent de parements moulurés. Elles peuvent être prépeintes avec un aspect veiné bois, comme les modèles Droite, Style, [**Régence**](/bloc-porte-postforme-regence-parement-veine-bois-FPC2184521). Les portes Droite et Style existent également en version **[à vitrer](/bloc-porte-postforme-droite-a-vitrer-FPC1732551)** pour laisser entrer la lumière naturelle dans une pièce peu éclairée.
+![desktop_portesauthentiquesplaque_cheneplaque_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300200a84/desktop_portesauthentiquesplaque_cheneplaque_p1.jpg)
+## La modernité du bois exotique pour revisiter les portes en bois
+Craquez sur les avantages du bois exotique, à la fois lumineux, très résistant, élégant et disponible à moindre prix ! Optez pour l’un des 4 différents modèles Classique, Spécial, Habitat et Habitat à vitrer, tous revêtus d'un placage bois exotique à vernir. Vous pouvez également choisir l’une des deux finitions vernies. La porte 4 vantaux, idéale pour un salon, apporte une touche chaleureuse et originale à votre décoration intérieure.
+## La noblesse du bois de chêne pour des portes intérieures authentiques
+Disponible en 5 finitions le bois de chêne se décline en 5 différents modèles :Classique, Spécial, Provence, Campagne et Spécial à vitrer. Pour mettre l’accent sur la déco traditionnelle de votre intérieur, craquez pour les deux vantaux et une finition rustique.

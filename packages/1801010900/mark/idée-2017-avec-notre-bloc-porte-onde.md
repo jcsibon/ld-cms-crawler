@@ -1,0 +1,29 @@
+##
+# **PORTE – Idée 2017 avec notre bloc-porte ONDE**
+Une ou plusieurs portes d’intérieur à changer dans votre intérieur ? Avez-vous pensé au bloc porte prêt-à-peindre qui permet de personnaliser chacune de vos portes au gré de vos envies et selon la décoration de chacune de vos pièces ? Découvrez avec les experts Portes Lapeyre le bloc porte prêt à peindre Onde, une porte lisse battante facile à poser.
+##  1. PORTE Onde : un bloc porte prêt-à-peindre, 1001 idées
+Le bloc porte Onde est un bloc porte battant alvéolaire, à surface lisse MDF pré-peint blanc. Parce que votre porte se trouve entre deux pièces aux décorations différentes, parce que votre porte doit se fondre dans le décor ou au contraire révéler toute la personnalité de votre déco… le bloc porte prêt-à-peindre est la solution idéale pour laisser libre cours à votre imagination ! Nous vous donnons quelques pistes pour personnaliser votre bloc porte Onde Lapeyre…
+- **Osez la couleur en choisissant une teinte vive** pour que votre porte devienne un élément de décoration à part entière. Astuce : prolonger la couleur de la porte sur le plafond ou le sol, ou en bande transversale.
+- **Faites courir la peinture des murs sur votre porte**, en particulier si vous avez opté pour un mur bicolore. Ou laissez la porte se fondre dans le décor en la recouvrant de la même couleur que les murs environnants. Et la porte disparaitra !
+- **Utilisez des trompe-l’œil** magnétiques ou en papier peint pour créer des illusions d’optique à l’emplacement de votre porte.
+- Dans la cuisine ou dans une chambre d’enfant, pourquoi ne pas **appliquer une peinture ardoise** pour que votre porte Onde devienne un tableau d’expression libre ou un pense-bête déco ?
+- **Vous avez l’âme d’un artiste ou pratiquez l’art du pochoir** avec perfection ? Laissez votre créativité s’exprimer sur votre porte ! Et la porte Onde deviendra un tableau unique en son genre.
+- Pour agrandir la pièce ou dans un dressing, pourquoi ne pas **transformer votre porte en miroir en pied** ?
+- Envie d’originalité et de personnalisation : sur un palier avec plusieurs portes, laissez chacun **personnaliser sa porte** d’une couleur ou d’un papier peint qui lui est propre !
+##
+##  2. PORTE Onde : bien choisir son modèle
+###  Porte Onde : choisir le sens d’ouverture
+Avant de choisir votre porte, vérifiez bien le sens d’ouverture de votre porte en rénovation : battante à poussant droit ou battante à poussant gauche.
+###  PORTE Onde : prendre les mesures de votre porte
+Un bloc porte comprend un bâti et une porte. Il est donc essentiel que vous preniez les bonnes mesures soit du bâti déjà existant pour une pose de porte en rénovation, soir de l’ouverture totale pour une pose de bâti + porte.
+Les 3 mesures essentielles sont : la largeur, la hauteur et l’épaisseur du mur. Largeur d’ouverture en cas de pose complète, de passage et de la porte en cas de rénovation.
+Le bloc porte Onde est un bloc porte à recouvrement avec isolation périphérique, qui comprend donc bâti et porte pour une pose complète sur le mur. Il existe en hauteur 204 cm sur 4 largeurs standard, sur une épaisseur de 40 mm.
+###  PORTE Onde : la poignée adaptée
+Comme pour les fenêtres, la poignée de votre porte est l’accessoire qui souligne le style de votre porte. En acier chromé contemporain, elle sera parfaite sur une porte banche ou noire dans un intérieur moderne. De couleur vive, elle apportera une touche contrastée, personnelle et peps à votre pièce. En porcelaine et à bouton, elle s’intègrera avec élégance dans un intérieur scandinave ou classique.
+Vous l’aurez compris, le choix de la poignée de votre porte Onde est une question de goût. A vous de trouver la poignée qui vous correspond !
+##  3. PORTE Onde : l’étape mise en peinture
+Si vous n’avez pas l’habitude de peindre de grandes surfaces, il vous sera plus facile de peindre votre porte Onde à plat, posée sur tréteaux, même si la plupart des professionnels conseillent de peindre les portes en position verticale.
+Sur la porte Onde à surface lisse, la solution la plus adaptée est la pose de peinture au rouleau, qui permet un fini quasi sans trace. Procédez par étapes, en délimitant virtuellement 4 zones à peindre et en appliquant la peinture sur chaque zone successivement. Comme sur un mur, croisez vos passes pour un rendu uniforme. Nous vous conseillons de terminer votre mise en peinture par une dernière couche verticale (de bas en haut si votre porte est posée à la verticale pour éviter les coulures).
+##  4. PORTE Onde : la pose de votre porte
+[Suivez le guide](https://static.lapeyre.fr/img/catalogue/APC0001/475/135/Notice%20de%20pose%20-%20Portes%20int%C3%A9rieures.pdf) que nos experts en portes ont élaboré pour vous accompagner à chacune des étapes de la pose de votre nouveau bloc porte Onde.
+Et si vous préférez vous en remettre au maximum à un professionnel, Lapeyre vous propose le service Réno : vous retirez votre ancienne porte de son bâti et vous l'apportez en magasin. Un menuisier se charge de faire les adaptations nécessaires en atelier d'après les mesures de l'ancienne porte (recoupe, pose des fiches, serrure...), et vous n'aurez plus qu'à replacer la nouvelle porte sur l'huisserie existante en rentrant chez vous. Et si le bloc porte Onde ne convient pas à votre projet, nous en trouverons forcément un autre dans notre [large gamme de portes battantes d’intérieur](https://www.lapeyre.fr/portes-CCU0004/portes-interieur-CCN0085/portes-battantes-CCN0169) . Pour vous inspirer, découvrez nos dossiers **_Les portes : un atout pour personnaliser son intérieur_** et [**_Comment structurer l’espace intérieur avec les portes._**](https://www.lapeyre.fr/SearchDisplay?storeId=10101&catalogId=10151&langId=-2&sType=SimpleSearch&resultCatEntryType=2&showResultsPage=true&ongletSearch=contenu&searchSource=Q&pageView=&beginIndex=0&pageSize=24&searchTerm=Comment+structurer+l%27espace+avec+vos+portes+%3F)

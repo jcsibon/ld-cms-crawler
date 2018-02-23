@@ -1,0 +1,6 @@
+## Les rangements gain de place s’invitent en cuisine
+Cuisinez au milieu de la pièce avec tous les ustensiles à portée de main. Optez pour un îlot de cuisson, qui comprend les plaques et une table de travail. Les fanas de design craqueront sur la version à porte courbe.
+Un espace pour préparer de bons petits plats, un autre pour les déguster, ça vous tente ? Séparez les ambiances avec un meuble banc, qui permet également de ranger les assiettes_,_ ou un meuble double face. Avec lui, vous attrapez les objets dont vous avez besoin sans vous soucier du côté où ils se trouvent.
+![desktop_trouvermeubleadapterCUIS_CUIStwist_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002049dd/desktop_trouvermeubleadapterCUIS_CUIStwist_p1.jpg)
+## L’aménagement de cuisine passe aussi par les angles
+Les [**rangements d’angle**](/meuble-rangement-angle-bas-2-plateaux-demi-lune-l-120-cm-FPC5116404) s’ouvrent dorénavant en deux pans distincts pour avoir les quatre tiroirs à la vue simultanément. Les classiques demi-lune peuvent également s’accrocher en hauteur. Grâce aux plateaux équipés d’une barrière en métal, pas de risque de recevoir une surprise sur la tête !

@@ -1,0 +1,6 @@
+## Une marquise ou un auvent contemporain ?
+Un auvent contemporain se distingue par des matériaux novateurs, tels que le polycarbonate et le verre acrylique. Son esthétique allie pureté de la transparence et haute technologie, comme l’auvent de porte **[Leya](/auvent-contemporain-leya-FPC2211340)** avec sa baguette lumineuse en option (vendue séparément) et **[l’auvent contemporain Théa](/auvent-contemporain-thea-FPC2211320)**, qui permet un écoulement latéral des eaux de pluie. Découvrez aussi le modèle élégant Brida !
+![desktop_lesauventsetmarquises_auventsnatea_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300211506/desktop_lesauventsetmarquises_auventsnatea_p1.jpg)
+##
+## Les auvents de porte et les marquises au style authentique
+Adeptes de la déco classique, optez pour un auvent de porte en sapin ou pour une marquise éventail en fer avec traitement anti-corrosion. Le modèle Natéa combine l’élégance romantique des arabesques avec la stylisation d’une couverture transparente et plate. L’auvent de porte Edessa est une combinaison parfaite entre légèreté du verre feuilleté et la finesse de ses flans en aluminium thermolaqué.

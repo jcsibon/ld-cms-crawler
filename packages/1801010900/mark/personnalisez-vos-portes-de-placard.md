@@ -1,0 +1,9 @@
+## Des portes de placard pas comme les autres !
+Votre placard encastré manque de relief ? Ne cherchez plus, il faut l’équiper d’une porte de placard qui parle d’elle-même. Une porte à l’identité affirmée confirme vos décisions en termes de décoration. Opter pour une couleur forte ou originale et pour un matériau accordé est l’une des meilleures idées de personnalisation.
+La collection Partition, et notamment les portes Prélude, vous permettent de choisir parmi une vingtaine de tons, sans compter les différentes matières et la possibilité de préférer du verre laqué comme support. Combinez une couleur forte : rouge, noir, potiron ou jaune en verre laqué avec une porte miroir pour un effet encore plus lumineux !
+Avec la collection Inspiration, et notamment la ligne Variation, les tons deviennent plus pastels pour un résultat moins flashy mais tout aussi personnel. Avec les portes Damier, combinez deux coloris.
+![desktop_customisezdressing_porteplacarddeclic_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020a6c1/desktop_customisezdressing_porteplacarddeclic_p1.jpg)
+##
+## Des portes de placard pour transformer un espace libre en rangement optimisé
+Profitez d’un dessous d’**[escalier](/escaliers-CCU0006)** ou de vos combles pour y aménager un placard qui vous fera gagner en surface de rangement. Ne cherchez pas à le cacher, au contraire : revendiquez-le. Il apportera un plus déco à votre pièce, grâce à sa façade haute en couleur.
+Laissez-vous tenter par la ligne Déclic, avec ses nombreuses possibilités d’installations et ses 18 coloris au choix. Combinez la couleur de votre escalier ou de vos combles et celui de votre placard pour un résultat coordonné et harmonieux.

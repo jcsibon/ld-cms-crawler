@@ -1,0 +1,10 @@
+## Une terrasse en bois, transition naturelle vers le jardin
+Les lames de terrasse en bois n’ont pas leur pareille pour s’intégrer à l’environnement. Les **lames de terrasse en pin Douglas** (certifié PEFC) sont naturellement résistantes. Vous profitez de leurs belles veinures sans appréhender la corvée d’entretien ! Plus contemporaines, **les lames en pin Radiata** (certifié FSC) affichent une surface striée, disponible en finition blanchie pour une note plus exotique.
+Vous possédez un jardin zen ? Prolongez l’effet japonisant avec [**les lames Bambou**](/lame-de-terrasse-bambou-FPC2413740)(PEFC). Réversibles, elles possèdent une face lisse et une face rainurée : idéal pour visualiser le rendu de chacune, avant la pose.
+![desktop_queltypesolpourmaterrasse_CARRcotignac_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020e571/desktop_queltypesolpourmaterrasse_CARRcotignac_p1.jpg)
+##
+## La terrasse en caillebotis : aussi simple à installer qu’innovante !
+Les caillebotis vont booster votre créativité ! Caillebotis à poser ou à clipser, ils s’installent en un clin d’œil sur votre balcon ou votre terrasse. Surtout, ils vous proposent une palette de surfaces pour vous exprimer : hêtre, acacia, gazon synthétique, aluminium, pierre, galets ronds ou plats… Et toutes les combinaisons sont possibles si vous optez pour une pose en damier !
+## Le carrelage extérieur terrasse crée l’illusion
+En matière de carrelage design, les nouveautés Lapeyre créent l’illusion, même en plein soleil !
+Le modèle Country propose une imitation « bois vieilli » dans une teinte gris-beige très moderne. Le carrelage Cotignac en version gris muretto, séduit par ses reliefs affleurants tandis que les carreaux Artaban se distinguent par leur aspect « pierre panachée ». Vous pouvez optez pour leur format rectangulaire ou la version mosaïque.

@@ -1,0 +1,31 @@
+##
+**Basculantes, coulissantes, pliantes, enroulables, battantes, sectionnelles, à battant… Difficile de faire son choix parmi la large gamme de**[**portes de garage**](https://www.lapeyre.fr/portes-CCU0004/porte-garage-CCN353989#facet:&facetContent:&productBeginIndex:0&contentBeginIndex:0&orderBy:5&orderByContent:&pageView:grid&pageViewContent:&minPrice:&maxPrice:&pageSize:&) **qui s’offre à nous. Selon leurs caractéristiques et vos besoins, faites le meilleur choix.**
+![porte de garage 1](http://www.lapeyre.fr/img/contrib/326fe2b011800774/201104786.jpg)
+##  Les portes de garage basculantes : solides et isolantes
+Solides et pratiques, les portes de garage basculantes allient confort d’utilisation et possibilité de personnalisation. Réalisées la plupart du temps en acier, elles assurent une parfaite isolation ainsi qu’une sécurité à toute épreuve.
+Pratiques, elles n’encombrent pas l’espace à l’intérieur du garage. Attention, toutefois, avant de l’installer, de bien vérifier que vous disposez du dégagement suffisant. Sachez que certains modèles n’empiètent pas sur l’extérieur. Disponibles en version standard ou sur-mesure, les portes de garage basculantes sont toutes motorisables.
+Et pour l’isolation ? Les portes enroulables peuvent comporter des panneaux isolés avec une mousse polyuréthane et des joints périphériques. Elles assurent ainsi une parfaite étanchéité et une excellente isolation.
+##  Les portes de garage enroulables : encombrement mini et protection maxi
+Idéale pour les petits garages, la porte enroulable se pose comme un volet roulant et offre un encombrement minimal. Equipée d’une motorisation intégrée, elle fonctionne avec télécommande en pack confort ou avec commande murale en pack éco. Par simple pression de bouton, votre porte disparaît. Et en cas de coupure de courant, il est tout à fait possible de la remonter manuellement.
+Les lames en double paroi avec mousse polyuréthane permettent une excellente isolation. De plus, grâce au système d’arrêt sur obstacle avec remontée automatique, les portes de garage enroulables vous assurent une parfaite sécurité.
+![porte de garage 2](http://www.lapeyre.fr/img/contrib/326fe2b01180077d/201517076.jpg)
+##  Les portes de garage coulissantes : la liberté de choisir
+D’allure classique, les portes de garage coulissantes ne débordent pas sur l’extérieur et laissent l’entrée du garage entièrement libre. Faciles pour se garer, elles s’ouvrent horizontalement en glissant le long d’un rail auquel elles sont suspendues. Elles sont disponibles en format standard ou sur-mesure et viennent équiper de petites fenêtres.
+Enfin, sachez que les portes de garage coulissantes existent aussi en bois ou en PVC. Tandis que le bois vous offre une esthétique chaleureuse et une isolation naturelle, le PVC, quant à lui, résiste mieux aux intempéries et ne vous demande aucun entretien. Selon la situation de votre garage et vos besoins, libre à vous de choisir la solution la mieux adaptée.
+![porte de garage 3](http://www.lapeyre.fr/img/contrib/326fe2b011800786/201411180.jpg)
+##  Les portes de garage en accordéon : gain de place et simplicité
+Composées de panneaux articulés suspendus à un rail, les portes de garage en accordéon s’ouvrent latéralement d’un seul geste. Faciles à ouvrir, elles empiètent très peu sur l’intérieur et ne débordent pas à l’extérieur. Une solution idéale pour les espaces exigus et les petites surfaces.
+Les portes de garage en accordéon Lapeyre sont fabriquées en bois traité IFH, pour une isolation 100 % naturelle. Compétitive en terme d’isolation, notez toutefois, qu’elles offrent une faible résistance à l’effraction.
+Livrées en kit avec une serrure, il est tout à fait possible de les adapter à la hauteur souhaitée. Sachez qu’une recoupe de 10 cm en partie basse est possible. Vous pouvez également les peindre, les vernir ou les lasurer.
+##  Les portes de garage pliantes : cap sur la robustesse
+Livrées en kit, les [portes de garage pliantes](https://www.lapeyre.fr/portes-garage-CCN0076/portes-garage-pliantes-CCN0215) comportent 3 à 4 vantaux et s’ouvrent très simplement vers l’intérieur du garage. Elles existent en format standard ou sur-mesure. Plusieurs modèles sont même aptes à la recoupe.
+Pour plus de luminosité, la partie haute de certaines portes de garage pliantes peut être ajourée et équipée de vitrages et de grilles de protection.
+Enfin, les portes pliantes isolantes Valençay ou Louveciennes peuvent également satisfaire vos besoins d’isolation. Elles disposent de joints périphériques sur l'ouvrant, d'un seuil aluminium et d'un double vitrage 16 mm pour les portes vitrées. Vous lutterez ainsi efficacement contre les assauts du froid !
+##  Les portes de garage battantes, la simplicité avant tout
+Simples et pratiques, les[portes de garage battantes](https://www.lapeyre.fr/portes-garage-CCN0076/portes-garage-battantes-CCN0213) vous laissent tout l’espace disponible dans votre garage. Disponibles en format standard ou sur-mesure, elles sont livrées pré-montées avec pentures posées, verrous baïonnettes et gonds. Les deux battants comprennent barres et écharpes.
+L’ouverture se faisant vers l’extérieur, vérifiez, avant de choisir cette solution, que vous disposez du dégagement suffisant pour pouvoir ouvrir la porte.
+Côté matériau : en bois ou PVC, les deux solutions sont possibles. Vous pouvez opter pour une porte de garage battante en sapin à peindre ou pour une porte de garage en PVC d’allure plus moderne, à l’entretien minimal et plus résistante aux intempéries.
+##  Les portes de garage sectionnelles : une ouverture sûre et pratique
+Faciles à monter, isolantes et étanches, les portes de garage sectionnelles s’ouvrent verticalement, se logent sous le plafond et peuvent être motorisées.
+Avec leur ouverture verticale, elles protègent les petites mains grâce à leur système anti-pince doigts. Livrées en kit ou pré-montées, vous pouvez opter pour des modèles standards ou sur mesure.
+Sachez que les portes de garage sectionnelles en acier offrent solidité et sécurité anti-effraction. Enfin, grâce aux joints et aux panneaux remplis de mousse polyuréthane, elles assurent de plus une parfaite isolation et une étanchéité à toute épreuve.

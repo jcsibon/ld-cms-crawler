@@ -1,0 +1,9 @@
+## Une porte de garage pour un encombrement minimum
+Avec une [**porte de garage battante**](/exterieur-jardin-CCU0008/portes-garage-CCN0076/portes-garage-battantes-CCN0213), vous devez calculer l’amplitude des battants lorsque vous stationnez votre voiture devant votre garage. La [**porte de garage coulissante**](/portes-garage-CCN0076/portes-garage-coulissantes-CCN0214) libère l’espace au-dehors mais vous empêche d’utiliser le mur latéral pour poser des étagères.
+Profitez du plafond ! Les [**portes de garage sectionnelles**](/portes-garage-CCN0076/portes-garage-sectionnelles-CCN0211)et basculantes limitent aussi bien l’encombrement extérieur de la porte que de son ouverture puisqu’elles se fixent au plafond.
+Vous disposez alors de l’ensemble de votre garage pour installer des étagères du sol au plafond ou suspendre vos outils de jardinage.
+![desktop_profiteMAXgarageportegainplace_columbia_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300207e98/desktop_profiteMAXgarageportegainplace_columbia_p1.jpg)
+##
+## Une porte de garage à enroulement : votre alliée gain de place !
+La solution idéale en terme de gain d’espace reste la porte de garage enroulable. Les modèles enroulables motorisés Chicago et Dakota apportent une réponse à toutes les pièces encombrées. Vous pouvez ainsi garer votre voiture à quelques centimètres de la porte sans que cela ne gêne son ouverture. Ce qui vous fait gagner de la place à l’extérieur.
+À l’intérieur du garage, la porte enroulée n’obstrue aucune ouverture et n’occupe presque pas de place grâce à son caisson à poser sous le linteau, à la retombée du linteau ou sur la façade de maison.

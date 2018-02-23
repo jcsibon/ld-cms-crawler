@@ -1,0 +1,9 @@
+## Les solutions domotiques pour votre cuisine
+Votre rythme de vie, vos obligations et vos occupations quotidiennes vous empêchent de profiter de votre **[cuisine](/cuisine-CCU0001)** ? Et si votre cuisine commençait à vous aider ?
+Avec les nouvelles technologies, vous pouvez être au **[four](/fours-CCN0101)** et au moulin, surtout quand le [**four encastrable**](/fours-CCN0101) prend les choses en main. Optez par exemple pour le [**four multifonctions**](/fours-CCN0101) Siemens. Il ne vous offre pas moins de 70 programmes automatiques, ce qui vous permet par exemple d’obtenir un poulet rôti juste pour l’heure du dîner.
+Le matin, votre machine à café encastrable se charge de tout, même du capuccino ! Et comme elle est entièrement automatique, vous pouvez lui confier la tâche de vous préparer le café tel que vous l’aimez, avec ou sans lait, pour un réveil presque parfait.
+![desktop_appareilelectroadapte_fourintegreaunmeuble_p1](//statics.lapeyre.fr/img/contrib/2c02eaffcea01c11/desktop_appareilelectroadapte_fourintegreaunmeuble_p1.jpg)
+##
+## Le box domotique pour toute la maison !
+Grâce aux solutions domotiques, vos équipements deviennent une équipe qui déploie tous ses efforts pour vous offrir une vie douce et plus confortable.
+Fermez les volets et préchauffez votre maison avant votre arrivée, pour un retour chaleureux dans votre nid douillet. Programmez le chauffage de votre salle de bain et de vos serviettes depuis votre lit grâce aux radiateurs sèche-serviettes avec boîtier de commande à distance. Plus besoin de courir : utilisez la magie de la programmation pour prendre votre temps.

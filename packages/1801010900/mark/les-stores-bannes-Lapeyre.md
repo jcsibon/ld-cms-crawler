@@ -1,0 +1,9 @@
+## Des stores bannes de haute résistance, la garantie Lapeyre en plus
+Les stores bannes sont équipés de bras à câbles en inox gainé qui ont été testés et prévus pour fonctionner jusqu’à 40 ans ! Une gaine anti-grincement protège les ressorts et la fixation par vis en acier inoxydable. La toile de store en acrylique offre une excellente résistance à l’eau, évitant la formation de « poches » en cas de précipitations.
+## Le store banne Monobloc pour un espace de vie outdoor
+Le store Monobloc est la solution idéale pour votre balcon. Il peut être installé sur un mur extérieur ou au plafond. Il est muni d’un boîtier de commandes relié à un moteur qui contrôle le système d’ouverture et la fermeture de votre store sans le moindre effort. En option, vous pouvez vous équiper d’un système de chauffage ou d’un éclairage intégré.
+![desktop_lesstoresbanneslapeyre_semicoffreblanc_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020616b/desktop_lesstoresbanneslapeyre_semicoffreblanc_p1.jpg)
+## Le store banne Semi-coffre pour la vie au grand air
+Le Confort Semi-coffre s’adapte à toutes les configurations : **[terrasse](/exterieur-jardin-CCU0008/terrasses-CCN0078)**, balcon, fenêtre ou baie coulissante. Il est équipé en série d’un coffre en PVC qui protège sa toile contre les intempéries lorsqu’elle est repliée. Choisissez parmi 29 coloris de toiles. Sa manœuvre est facile grâce à un moteur électrique filaire relié à un boitier de commandes, et à sa télécommande radio. Vous pouvez ajouter des capteurs solaires et des capteurs de vent qui activera automatiquement votre store en fonction des conditions climatiques.
+## Le store banne Coffre Intégral pour une façade esthétique dans le détail
+Le Confort Intégral est équipé d’un coffre en aluminium qui protège la toile intégralement contre les intempéries lorsqu’elle est repliée.

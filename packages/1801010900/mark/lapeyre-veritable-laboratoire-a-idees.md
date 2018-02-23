@@ -1,0 +1,9 @@
+##
+Un tiroir invisible dans l’épaisseur d’un **[plan de travail](/cuisine-CCU0001/credences-plans-travail-CCN0013/accessoires-plans-travail-CCN0092)**qui cache un set de 9 couteaux, 12 ustensiles ou une planche à découper et sa balance. De quoi libérer le plan de travail mais aussi l’agrandir en proposant une surface supplémentaire.
+L’espace huche à pain qui permet de conserver parfaitement le pain dans un sac totalement fermé directement avec la planche à découper et le couteau dans une largeur de seulement 15 cm.
+L’espace spécial réserves qui propose un double panier et permet ainsi de ranger deux fois plus tout en gardant ses éléments accessibles car avant de démultiplier les rangements, il faut déjà penser à rationaliser au maximum l’existant.
+Et enfin, encore un gain de place et une astuce cachée ultra pratique, le tiroir de plinthe avec escabeau intégré qui permettra d’accéder même aux étagères les plus élevées et de vraiment profiter de toute la hauteur sous plafond.
+##
+Le tiroir sous évier pour les éponges et sacs poubelle, tellement plus chic, surtout avec la grande tendance des cuisines ouvertes. Il est vrai que dans les magazines de décoration, on verra rarement les éponges et autres joies ménagères traîner à côté de l’évier. ;-)
+Particulièrement ingénieux aussi, l’espace **[sécurisé](/cuisine-CCU0001/accessoires-CCN0021/accessoires-securite-CCN0104)** pour produits dangereux fermé par verrou magnétique pour éviter tout accident avec les enfants.
+Des astuces aménagement en voulez-vous en voilà, c’est simple on ne va plus les tenir... et la Décorruptible non plus !

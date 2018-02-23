@@ -1,0 +1,9 @@
+## L’espace douche : l’élément essentiel pour une salle de bain tout confort
+Que vous l’aimiez énergisante le matin ou relaxante le soir, la douche occupe une place prépondérante dans votre utilisation de la salle d’eau. Prolongez le plaisir d’une douche au flux régulier et vivifiant en remplaçant votre vieille installation par une [**colonne de douche rénovation**](/colonne-de-douche-de-renovation-azur-FPC1220350). Avec un modèle d’entrée de gamme à moins de cent euros, vous bénéficiez d’une véritable amélioration de votre confort d’utilisation.
+Le revêtement intérieur et extérieur de votre espace douche change aussi de visage grâce à [**l’habillage mural Creapano**](/habillage-mural-panodeco-kit-d-extension-FPC1238166). Très simples à poser sur tout type de mur, ces panneaux vous permettent de transformer votre espace douche en un clin d’œil.
+![desktop_SDBdesignsansruiner_habillagecreapano_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002116aa/desktop_SDBdesignsansruiner_habillagecreapano_p1.jpg)
+##
+## Les revêtements habillent toutes vos surfaces dans votre salle de bain
+Les revêtements de baignoire ou de murs donnent une seconde jeunesse à votre salle de bain sans avoir à entreprendre de gros travaux.
+Habillez votre baignoire à l’aide du [**panneau Dress code**](/dress-code-FPC1238177) facile à monter, qui s’adapte sur les modèles de baignoire droite ou d’angle. Ce tablier existe en plusieurs coloris.
+Vos murs, irréguliers ou aux carreaux usés, n’attendent que les panneaux à carreler Évolution pour redevenir éclatants. Ces panneaux se collent sur n’importe quelle surface et rattrapent des parois vieillies ou endommagées, sans besoin de se lancer dans une rénovation de la maçonnerie. Il ne vous reste plus qu’à choisir un carrelage design et économique... Vous voilà prêt à utiliser votre salle de bain comme neuve !

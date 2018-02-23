@@ -1,0 +1,7 @@
+## Portes, fenêtres et volets : coordonnez les matériaux et les couleurs sur la façade
+Lapeyre vous propose de choisir votre matériau de prédilection : bois, PVC, aluminium ou Alubois pour toutes vos menuiseries. En optant pour un même matériau, vous réalisez une première unification de vos ouvertures pour un style plus homogène. À vous de définir quel modèle de [**porte de garage**](/exterieur-jardin-CCU0008/portes-garage-CCN0076), de porte d’entrée contemporaine ou authentique et de [**fenêtres**](/fenetres-CCU0003)vous souhaitez.
+Vous pouvez également coordonner les couleurs de vos menuiseries. Avec Lapeyre c’est facile... Les modèles en PVC et aluminium vous offrent une carte de 14 teintes au choix. Vous pouvez opter pour des tons en harmonie avec le revêtement de votre façade, voire avec l’environnement de votre maison – en particulier si vous vivez en ville.
+![desktop_desfacadescoordonnees_portailcarnac_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002072b8/desktop_desfacadescoordonnees_portailcarnac_p1.jpg)
+##
+## Portail et clôture assortis pour faire un rappel avec la façade de maison
+Si vous souhaitez composer une véritable unité esthétique sur l’ensemble de votre habitat, ne vous limitez pas aux menuiseries de façade ! Travaillez le « total look » en optant pour un [**portail**](/exterieur-jardin-CCU0008/portails-CCN0089) et une clôture de jardin coordonnés... Voire pour un toit de terrasse !

@@ -1,0 +1,9 @@
+## L’ouverture des portes de garage coulissantes
+Les **[portes de garage coulissantes](/portes-garage-CCN0076/portes-garage-coulissantes-CCN0214)** s’ouvrent horizontalement en glissant le long d’un rail auquel elles sont suspendues. Elles sont disponibles en format standard ou sur mesure et viennent équipées de petites fenêtres.
+Le + : la porte coulissante Nebraska peut être motorisée si vous le souhaitez.
+![desktop_portegaragecoulissante_coulissantepvc_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020a43e/desktop_portegaragecoulissante_coulissantepvc_p1.jpg)
+##
+## Les portes de garage coulissantes en bois ou en PVC
+Les portes de garage coulissantes existent en bois ou en PVC. Le bois vous offre une esthétique chaleureuse et une isolation naturelle. Le PVC résiste mieux aux intempéries et ne vous demande aucun entretien.
+Pour vous assurer de faire le bon choix, allez découvrir les autres types de portes de garage : portes en accordéon **,** portes de garage enroulablesou**[sectionnelles](/portes-garage-CCN0076/portes-garage-sectionnelles-CCN0211), [portes de garage battantes](/portes-garage-CCN0076/portes-garage-battantes-CCN0213)**oucoulissantes … Le choix est large ! Les portes de garage coulissantes existent en bois ou en PVC. Le bois vous offre une esthétique chaleureuse et une isolation naturelle. Le PVC résiste mieux aux intempéries et ne vous demande aucun entretien.
+Pour vous assurer de faire le bon choix, allez découvrir les autres types de portes de garage : portes en accordéon , portes de garage enroulables ou sectionnelles, portes de garage battantes ou coulissantes … Le choix est large !

@@ -1,0 +1,58 @@
+##
+# **Comment poser une terrasse en bois ?**
+Pour une ambiance naturelle et exotique qui fait un trait d’union chaleureux entre la maison et le jardin, la terrasse s’habille de bois, matériau idéal pour recouvrir tout type de sol **[extérieur](/exterieur-jardin-CCU0008)**: dalle béton, terre, remblais, gazon, gravier, en pente ou sur terrain plat. Matériau naturel, léger et résistant, le bois est aussi assez souple pour s’adapter à tout type de configuration. Pour bien construire une terrasse en bois, il est nécessaire de prévoir avec minutie vote chantier, du plan jusqu’à la visserie. Pour vous éclairer, les experts Sols Lapeyre vous guident…
+##  Avant de commencer les travaux…
+Poser une terrasse en bois est un chantier accessible à tout bon bricoleur, et nécessite une méthodologie rigoureuse comme de bons outils. Que vous choisissiez des lames de bois ou des dalles type caillebotis, avant de démarrer les travaux, voici quelques questions à vous poser et quelques conseils :
+###  1. Démarches administratives
+Si votre terrasse ne dépasse pas 20m2 pour une hauteur de 60 cm au dessus du niveau du sol, aucune autorisation n’est nécessaire pour sa construction. Par contre vous devrez vous renseigner auprès du service d’urbanisme de votre ville pour déposer un permis de construire si votre projet de terrasse en bois excède une superficie de 20m2.
+###  2. Choix de l’emplacement de la terrasse
+Pour préserver la beauté d’origine du bois, il est préférable que votre terrasse se situe sur un emplacement protégé des intempéries et du vent, et plutôt ensoleillé. Eviter de la construire sous des arbres résineux car la résine est quasiment impossible à nettoyer sur du bois.
+###  3. Choix des accessoires de finition : éclairage
+L’utilisation de lames ou de dalles de bois permet d’intégrer des éclairages à même le sol et ce dès la planification de votre chantier. De nombreux éclairages extérieurs LED sont désormais disponibles en Plug&Play, pour une installation simple et sans danger. Pensez donc à vous renseigner et vous équiper en conséquence avant le démarrage de la pose.
+**Un chantier extérieur qui se pense à l’avance…**
+## LES TECHNIQUES DE POSE D’UNE TERRASSE EN BOIS
+La technique de pose de vos lames ou dalles de bois va dépendre de la qualité de votre sol.
+\- Sur une dalle bétonnée existante ou un sol dur carrelé : même si votre sol présente des irrégularités, vous pourrez effectuer une pose sur lambourdes simples ou sur plots. Les lambourdes de bois, traitées imputrescibles, peuvent alors être posées à même le sol sur des cales PVC qui permettent un bon drainage des eaux de pluie et saletés diverses. Les pots sont également posés à même le sol et sont pour la plupart réglables en hauteur pour ajuster la planéité des lambourdes ou directement des lames ou dalles de bois.
+\- Sur un sol naturel type gazon, remblai, sable… : la principale difficulté sera de créer une structure stable et plane qui pourra recevoir lambourdes ou plots. Plusieurs options possibles : couler une dalle de béton, couler des plots en béton, sceller des parpaings, ou, plus innovant, utiliser des vis de fondation jumelées à une muralière (lambourde fixée à la façade de la maison), technique qui permet une mise en place plus rapide. Il vous faudra ensuite poser une couche géotextile pour éviter les remontées de moisissures et mauvaises herbes. Dans ce cas, vous réaliserez une pose sur ossature bois ou lambourdes simples, pour une meilleure répartition des points de contact.
+_Conseil Lapeyre_ : quelle que soit votre type de pose, des lames de bois seront toujours fixées sur des lambourdes, elles-mêmes posées directement sur le sol ou sur des plots réglables. A contrario, des dalles de bois ou caillebotis pourront être posées directement sur des plots positionnés à chaque coin des dalles. Prévoyez donc bien votre projet en amont pour anticiper vos besoins.
+## LES TYPES DE CONFIGURATION DE POSE
+Comme pour le parquet, et à moins de choisir des caillebotis, vous pouvez imaginer tout type de configuration pour la pose de vos lames de bois. Et c’est cette configuration qui vous donnera la quantité de bois à acheter, alors à vos dessins !
+\- La pose droite, consiste à aligner les lames de bois sur le ou les murs, arrête contre mur, de manière linéaire et identique sur chaque rangée. C’est le type de pose le plus répandu et le plus facile à mettre en place pour une terrasse.
+\- La pose par cadre : cette technique reproduit l’effet de dalles en encadrant un ensemble de lames montées en pose droite, et permet par exemple de délimiter des zones sur de grandes surfaces de terrasse, ou pour des terrasses qui contournent au moins un angle de maison.
+\- La pose décalée, façon parquet (régulière) ou à l’anglaise (irrégulière) consiste à décaler les lames les unes par rapport aux autres. La pose façon parquet provoque de nombreuses chutes pour aligner les joints une rangée sur deux, alors que la pose à coupes perdues est la plus économique.
+\- La pose en diagonale est très prisée pour créer un dynamisme visuel : elle consiste à poser les lames à 45° par rapport au mur de façade. La difficulté réside dans la coupe des lames aux extrémités et aux angles.
+\- Les poses particulières : aspect chevron, la technique de pose à bâtons rompus consiste à poser les lames en « chapeau », et est surtout utilisée pour gérer les angles. Aspect graphique, la pose en point de Hongrie consiste à casser l’aspect rectiligne de lames parallèles à la terrasse par des lames perpendiculaires en étoile… Et à chaque idée, un dessin qui prend forme selon l’inspiration !
+## CHOISIR LES MATERIAUX : bois et visserie
+###  1. Bois :
+\- Bois des lambourdes : pour que votre structure de bois soit solide et résistante, il est préférable de choisir un bois de classe 4, et de même classe que vos lames ou dalles.
+\- Bois des lames ou dalles de terrasse : le choix de l’essence de bois ne doit pas s’arrêter à la simple esthétique finale que vous voudrez pour la terrasse. Privilégier un bois de classe 4, pour une résistance optimale à la stagnation de l’eau, au ruissellement, à l’humidité et aux U.V.
+\- Prise de mesures et calcul de quantité : une fois votre technique et type de pose déterminés, mesurez votre terrasse pour évaluer la quantité de lames ou dalles nécessaire pour couvrir votre terrasse, sans oublier les pertes dues aux coupes, et en soustrayant les espaces de dilatation nécessaires (5 mm environ entre les lames). Prévoyez une marge d’erreur de 5% environ, voire plus si vous avez opté pour une pose particulière nécessitant beaucoup de découpes et pertes.
+###  2. Visserie :
+Afin d’éviter une corrosion trop accélérée des éléments métalliques, il est préférable de choisir des visseries et équerres en acier inoxydable ou en acier galvanisé à chaud, et qui seront adaptées à votre type d’essence de bois.
+#### **Les étapes de pose d’une terrasse en bois**
+Avant de vous lancer dans la pose de vos lames ou dalles en bois de terrasse, voici les quelques étapes qui rythmeront votre chantier extérieur. Ne négligez pas de détails car, même si la pose en elle-même est assez simple, la préparation est indispensable et demande rigueur et minutie.
+## LA PREPARATION DU TERRAIN
+La complexité de cette première étape dépendra du type de terrain : meuble et/ou naturel : remblai, terre, gravas, ou stable et plan : dalle de béton ou sol carrelé. Les experts sol Lapeyre vous donnent la marche à suivre :
+###  1. Traçage d’un plan grandeur nature :
+Nous vous conseillons de délimiter l’emplacement de votre future terrasse en bois à l’aide de piquets et de cordeaux, et de positionner quelques lames ou dalles sur le contour pour imaginer la configuration de la terrasse. Ce plan grandeur nature vous permettra de prendre en compte les contraintes réelles du terrain et de confirmer vos mesures, votre quantité de bois, et les différents éléments à anticiper (éclairage, évaluation de la pente, évacuation des eaux de pluie…).
+###  2. Mise à niveau du sol d’accueil :
+A moins que vous ne travailliez sur une chape de béton déjà coulée ou sur un carrelage d’extérieur, il sera nécessaire de mettre à niveau et d’égaliser votre sol. Pour évaluer la hauteur finale de votre terrasse, n’oubliez pas de prendre en compte ce que les terrassiers appellent communément « l’épaisseur de fouille », à savoir la somme des hauteurs de tous les éléments de fondation et de construction : dalle, plots, lames, coffrage…
+Avant de pouvoir poser vos lames ou dalles de bois sur un sol meuble, il vous faudra construire un support de construction, à base de plots, parpaings, dalle de béton. Et sur un sol bétonné ou carrelé, nous vous conseillons également de poser des plots d’accueil avec gorge pour lambourdes.
+_N.B._ N’oubliez pas de prendre en compte la pente nécessaire à la bonne évacuation des eaux de pluie : 5% en général, avec une pente qui part de la maison vers l’extérieur.
+## LA POSE DES LAMES OU DALLES DE BOIS
+Nous vous orientons ici sur une pose via lambourdes car la pérennité d’une terrasse en bois tient avant tout à un bon socle de pose. Il est envisageable de poser des lames ou dalles de bois directement sur le sol, mais nous vous déconseillons de faire l’économie d’un support type lambourdes.
+Même s’il est possible de poser directement vos lambourdes sur un sol stable et dur, nous vous conseillons de privilégier une pose sur tampons d’isolation au minimum, voire sur plots d’accueil avec gorge.
+En résumé : tampons ou plots d’accueil, lambourdes puis lames !
+###  1. Pose des lambourdes :
+\- Pensez à laisser des espaces de dilatation sur les contours de la terrasse, en intercalant des cales de 10 mm environ contre les murs.
+\- Les lambourdes devront être placées sur des plots ou tampons d’isolation (8 mm) tous les 40 cm environ, dans le sens perpendiculaire au sens des lames de bois, et chevillées au sol.
+\- Fraisez vos trous de vis pour pouvoir encastrer vos vis et éviter qu’elles n’affleurent.
+\- Pensez à bien vérifier le niveau de la terrasse au dur et à mesure de la pose de vos lambourdes, en respectant la pente nécessaire.
+###  2. Pose des lames :
+\- Commencez par la bordure de la terrasse (ou autre selon le dessin choisi pour vos lames : contre la façade par exemple pour une pose en point de Hongrie).
+\- Pour la première ligne, posez d’abord votre lame de finition, puis recouvrez-la avec les lames de la première ligne en laissant un débord. Faites un essayage à blanc pour limiter les chutes.
+\- Rang par rang, en interposant des cales de dilatation, vissez vos lames de bois aux lambourdes (les vis devront mesurer au minimum 2,5 fois l’épaisseur de votre lame de bois).
+\- Terminez votre pose par les lames de chant et les profiles de finition.
+_Conseils Lapeyre :_ préférez les coupes à la scie circulaire qu’à la scie manuelle, pour des découpes plus précises et nettes.
+Votre terrasse est maintenant parfaitement posée et prête à recevoir un premier traitement qui protègera votre bois pour qu’il conserve ses qualités naturelles comme sa couleur d’origine. Pour entretenir et nettoyer votre nouvelle terrasse en bois, suivez **notre guide « Nettoyer et entretenir une terrasse en bois ».**
+**Pin, épicéa ou bambou, choisissez votre essence parmi [notre gamme de lames de bois extérieures](/lames-terrasses-caillebotis-CCN688029), ou [votre caillebotis en pin, épicéa, douglas ou bangkiraï](/caillebotis-CCN0222): tous les styles de bois de terrasse sont dans nos magasins Lapeyre ! N’hésitez plus…**

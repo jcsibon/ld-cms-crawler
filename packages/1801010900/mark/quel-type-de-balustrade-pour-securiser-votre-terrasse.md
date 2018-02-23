@@ -1,0 +1,10 @@
+## Une balustrade pour sécuriser une terrasse extérieure surélevée
+On ne badine pas avec la sécurité, surtout lorsqu’il y a des enfants qui jouent dans les parages. Avant de choisir une **[balustrade extérieure](/balustrades-exterieures-CCN0079)**, vous devez donc tenir compte de certains éléments importants et même de contraintes légales, dans le cas d’un usage collectif.
+Vous devez ainsi savoir que la balustrade d’une terrasse surélevée de plus de 90 cm doit être munie d’un panneau de verre acrylique pour la sécurité des plus petits. Ce remplissage obligatoire est notamment disponible sur les balustrades I-One ou [**Inoline**](/balustrade-alu-inoline-FPC2130020).
+Prenez également garde aux normes et aux garanties. Les balustrades avec remplissage câbles ne doivent pas être utilisées en hauteur. Assurez-vous que le modèle choisi soit résistant et qu’il respecte les normes NF-P01-012 et NF-P01-013 comme **ceux en acier**. Ou, pour un usage collectif, que la balustrade soit agréée par le CEBTP comme celle en aluminium.
+![Desktop_Balustradeterrasse_Inoxia](//statics.lapeyre.fr/img/contrib/2bdd4da300206f84/Desktop_Balustradeterrasse_Inoxia.jpg)
+##
+## Des idées de décoration avec la balustrade
+Sécurité et design font bon ménage, alors ne ménagez pas vos envies... Faites-vous plaisir ! Car la balustrade de terrasse est un élément structurant de l’espace de jardin. Vous pouvez fermer votre terrasse de plain-pied avec un garde-corps très tendance. Vous rehaussez ainsi son style et évitez les piétinements involontaires de vos parterres de fleurs.
+Adeptes de la ligne contemporaine, regardez du côté des modèles Universo en acier, Inoline en aluminium ou I-One en inox. Ces garde-corps sont à composer à votre goût en combinant la main-courante, les poteaux et le remplissage.
+Pour une balustrade traditionnelle qui respecte une esthétique classique, tournez-vous vers le bois, ou encore vers les modèles Dampierre, Batignolles ou Rambouillet en acier.

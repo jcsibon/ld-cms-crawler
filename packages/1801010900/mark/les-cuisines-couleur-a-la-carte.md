@@ -1,0 +1,10 @@
+## Cuisine de style contemporain : différentes couleurs tendance
+En décoration intérieure, les couleurs contemporaines ont souvent pour base les nuances de gris et de bruns. Ces coloris ont l’avantage d’éclaircir une pièce, tout en facilitant l’intégration visuelle des meubles de cuisine (**[cuisine Anton](/cuisine-anton-FPC200561)**,**[Eyre](/cuisine-eyre-FPC200555)**,**[Graphik](/cuisine-graphik-FPC200547)**).
+Mais ces teintes sobres ont un autre atout : elles accueillent habilement une couleur complémentaire, plus tonique, qui personnalisera votre espace culinaire. C’est le cas des collections Tandem, Graphik, Carat et Platine avec leurs finitions rouge corail, carmin, bleu canard, aubergine, vert liane, et plus encore !
+![desktop_lescuisinescouleuralacarte_CUISgraphik_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020e7b5/desktop_lescuisinescouleuralacarte_CUISgraphik_p1.jpg)
+##
+## Cuisine de style authentique : une touche de couleur sur des reliefs travaillés
+Lapeyre vous propose des meubles de cuisine aux coloris patinés, respectueux du style rétro tout en valorisant les reliefs du mobilier. Pour glisser une note de modernité, exploitez le rouge vieilli de la collection Bistro, les gourmands « vanille liséré abricot » (Fjord) et « vanille patinée cappuccino » (Domaine), ou l’inattendu « grège liséré blanc » (Saveur).
+## Changer la couleur de votre cuisine Lapeyre d’un seul clic !
+Les collections étoilées des cuisines Lapeyre sont proposées en 120 coloris de portes. Vous demandez à voir le résultat ?
+Rendez-vous sur la page de présentation de la cuisine Lapeyre de votre choix. Sélectionnez la teinte souhaitée sur notre nuancier, et optez pour la finition laquée ou mate. Puis découvrez le rendu, en situation ! Lancez ensuite notre outil en ligne « Cuisine 3D » : vous aurez même une estimation du budget de votre projet.

@@ -1,0 +1,8 @@
+## Soignez l’aspect de votre porte d’entrée en bois
+Les**[portes d’entrée](/portes-CCU0004/portes-entree-CCN0051)** et les [**portes de service**](/portes-CCU0004/portes-service-cave-CCN0177) sont soumises aux intempéries et aux poussières. Ces dernières, lorsqu’elles s’accumulent, retardent le séchage du bois et fragilisent sa belle finition. Tous les 2 ans, réalisez un léger égrenage suivi de l’application d’une lasure ou d’une peinture microporeuse. Au quotidien, un chiffon sec ou légèrement humide suffit pour l’entretien de votre porte, des vitrages, des baguettes ou des inserts inox.
+![desktop_bienentretenirMENUIS_baieCOULalubois_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020dc79/desktop_bienentretenirMENUIS_baieCOULalubois_p1.jpg)
+##
+## Nettoyez le pourtour de vos menuiseries extérieures
+Une fois par an, passez un coup d’éponge sur les grilles d’aération et le joint périphérique de vos menuiseries extérieures en bois, souvent noircis par la pollution. Au besoin, remplacez le joint sur l’ouvrant ou recourez à un kit d’étanchéité. Passez enfin un zeste de lubrifiant et de dégrippant sur les gonds de vos fenêtres, portes et volets. Sans oublier la serrure !
+## La peinture ou la lasure des menuiseries extérieures : tous les 2 ans
+Dès les premiers signes de cloquage, d’écaillage ou de craquellement, poncez vos menuiseries extérieures au papier de verre à grain fin. Vieillissement précoce ? Attaque de champignons ? Appliquez un traitement multi-usages avant de peindre.

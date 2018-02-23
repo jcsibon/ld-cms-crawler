@@ -1,0 +1,14 @@
+##
+**L’**[**escalier d’intérieur**](https://www.lapeyre.fr/escaliers-CCU0006/escaliers-interieur-CCN0227#facet:&facetContent:&productBeginIndex:0&contentBeginIndex:0&orderBy:5&orderByContent:&pageView:grid&pageViewContent:&minPrice:&maxPrice:&pageSize:&) **se décline aujourd’hui en de très nombreuses matières, mais aucune ne parvient à éclipser le bois et sa large gamme d’essences et de finitions. Pour choisir celle qu’il vous faut, interrogez-vous sur votre décoration d’intérieur et l’usage auquel vous destinez votre escalier.**
+**![esc bois 1](http://www.lapeyre.fr/img/contrib/326fe2b01180150f/201620372.jpg)**
+##  Le chêne, pour des escaliers robustes et traditionnels
+Le bois de chêne de France ou de Pologne est idéal pour les adeptes de la tradition et du style classique. Ce bois de référence est le bois noble par excellence et saura ravir tous les amateurs de belles matières et de beaux meubles. Naturellement solide et durable, votre escalier offrira caractère et élégance à votre intérieur.
+Pour ceux qui craignent le côté massif, sachez qu’il est possible de choisir un modèle aérien sans contremarche ou avec une rampe en métal plus moderne afin d’alléger et de moderniser la structure sans dévaloriser cette essence de qualité. Attention à son prix, il est en général plus cher que les autres bois. Pour le protéger, vous pouvez le cirer à l’aide de térébenthine et de cire d’abeille.
+![Esc bois 2](http://www.lapeyre.fr/img/contrib/326fe2b011801518/201618519.jpg)
+##  Les escaliers en sapin, pour un résultat à la fois chaleureux et actuel
+Le bois de sapin de Suède ou de Finlande utilisé pour la fabrication de nos escaliers séduit par sa couleur naturelle et intemporelle. La teinte blanc mat du sapin massif vous offre une grande facilité de finition. Libre à vous de le personnaliser !
+Idéal pour les intérieurs inspirés par une décoration de style épurée, il s’associera parfaitement aux tendances modernes du moment. Côté prix, cette essence se positionne parfaitement bien et saura répondre à toutes les bourses. Astuce pour le nettoyer : utilisez une brosse imbibée d’eau tiède et de savon noir, rincez et séchez rapidement pour que l’eau ne pénètre pas profondément dans le bois.
+![esc bois 3](http://www.lapeyre.fr/img/contrib/326fe2b011801521/201516535.jpg)
+##
+##  Le hêtre, pour des escaliers naturels et modernes
+Le bois de hêtre brut de France ou de Pologne possède un design moderne. Naturellement robuste et résistant, l’escalier en hêtre brut apporte toute sa chaleur à un intérieur et saura durer dans le temps. Solide, esthétique, il est aussi très abordable. Trois avantages qui font le poids et séduisent bon nombre de consommateurs.

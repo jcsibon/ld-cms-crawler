@@ -1,0 +1,41 @@
+##
+# **A quelle hauteur fixer le [plan de travail](/plans-travail-CCN0091) ?**
+Pour la préparation des repas comme pour le repas en lui-même, la cuisine est devenue une pièce de vie à part entière. Lors de la conception ou la rénovation de votre cuisine, il est donc indispensable de prendre en compte votre confort dans cette cuisine, et en particulier lorsque vous cuisinez… debout ! Une cuisine réussie est une cuisine optimisée et adaptée à vos besoins, une cuisine dont les plans de travail sont réglés à la bonne hauteur. Oui mais quelle est la hauteur optimale pour un plan de travail ? Nos experts Cuisine Lapeyre vous aiguillent…
+##  1/ Pourquoi la hauteur du plan de travail est-elle importante ?
+Parce que vous passez entre 30 minutes et plusieurs heures par jour debout dans la cuisine, il est primordial que ses moments soient agréables ! Devant votre plan de travail, votre îlot, votre zone de cuisson, votre corps doit être détendu et dans une bonne position pour vous éviter toute tension…
+###  Les plans de travail dans la cuisine
+Dans une cuisine, il y a plan de travail et plan de travail ! Nos experts cuisine vous donnent quelques conseils pour choisir la hauteur d’un plan de travail sous crédence ou d’un plan de travail en îlot.
+_Quesaco_ ? Le plan sous crédence, ou plan linéaire, représente la partie plane qui se trouve de part et d’autre que votre évier ou de votre zone de cuisson, zone la plus utilisée pour préparer les repas, laver, couper, ranger, poser… Le plan de travail en îlot est le plateau d’un ensemble de meubles compacts et autonomes situés en général au milieu de la cuisine. L’îlot peut être une zone de repas et/ou un plan de travail. Pour une zone multifonctions, il faudra donc veiller à respecter le confort nécessaire à un plan de travail et adapter les sièges (tabourets) pour un repas « en hauteur » !
+###  L’intérêt d’une cuisine ergonomique
+Parce que vous passez beaucoup de temps en cuisine, que ce soit pour préparer les repas ou faire la vaisselle, il est important que la hauteur de votre plan de travail respecte votre morphologie parce qu’elle joue un rôle essentiel pour la santé de votre dos. Plus vous pourrez rester droit sans vous courber, plus votre dos vous remerciera ! Si vous devez vous baisser pour faire la vaisselle ou remonter les épaules pour couper vos légumes, des douleurs musculaires ou des tensions localisées risquent de s’installer rapidement.
+_Nota Bene_ : la hauteur de votre plan de travail est déterminante dans la conception de votre cuisine car induit les positions de vos meubles hauts comme bas, de votre hotte et des prises de courant entre autres.
+##  2/ Déterminer la bonne hauteur d’un plan de travail
+Laver des légumes dans l’évier, émincer les condiments sur la planche à découper, préparer une béchamel sur une plaque de cuisson, faire la vaisselle… autant de tâches qui nous font prendre des positions différentes au dessus du plan de travail de la cuisine. Le critère déterminant dans votre décision : que votre dos reste droit ! Entre hauteur standard proposée par les cuisinistes, hauteur idéale selon votre morphologie et vos habitudes, et hauteur sur-mesure… comment s’y retrouver ?
+###  Hauteur standard versus hauteur idéale
+\- Hauteur standard : la plupart des cuisines proposées par les cuisinistes ont des hauteurs de plan de travail standard : fixée à 87 cm il y a encore quelques années, cette hauteur tend à atteindre 91 voire 93 cm pour s’adapter à la taille moyenne grandissante des individus. Mais nous ne faisons pas toutes et tous la même taille !
+\- Hauteur idéale : la bonne hauteur d’un plan de travail dépend de votre taille et de votre morphologie. Dans l’idéal, le plan de travail doit arriver à la hauteur de votre taille (ceinture) mais aussi, autant que possible, à 10 cm environ en dessous de la hauteur de vos coudes pliés à 90°.
+_Nota Bene :_ l’épaisseur d’un plan de travail standard est de 4 cm environ pour assurer robustesse et résistance à l’usage.
+###  Le plan de travail sur-mesure
+Pour calculer la hauteur totale optimale de votre plan de travail au moment de la conception de votre cuisine équipée, prenez en compte les éléments suivants :
+\- Les pieds des meubles
+\- Les meubles de rangement sous plan
+\- L’épaisseur du plan de travail
+\- La hauteur idéale à 10 cm sous votre pointe de coude, bras plié à 90°
+\- Une différence de quelques centimètres entre la zone de lavage (plus haute) et la zone de cuisson.
+La personne qui passe le plus de temps en cuisine sera prioritaire sur la prise de mesures car son confort au quotidien en dépend !
+_Conseil Lapeyre_ : outre le confort d’une adaptation parfaite à votre taille, pensez également à la hauteur des équipements que vous souhaitez placer sous votre plan de travail, à 1 ou 2 cm près, autant y faire rentrer vos rangements !
+##  3/ Solutions et astuces pour adapter la hauteur du plan de travail
+Hauteur standard, hauteur idéale : oui mais pour une seule personne car tous les utilisateurs de la cuisine n’ont pas la même taille ni la même morphologie… et chaque usage : cuisine, cuisson, vaisselle, nécessite une position différente. Alors comment combiner les besoins de chacun dans une même cuisine ?
+###  Une hauteur moyenne pour le confort de tous
+Votre cuisine offre un et un seul plan de travail linéaire que vous ne pouvez moduler ? Alors optez pour une hauteur moyenne qui convienne aux personnes qui y passent le plus de temps debout, et pour les tâches les plus courantes. Et ne vous fiez pas aux enfants : ils grandissent, et perdent parfois l’envie d’aider avec les années, même dans la plus belle cuisine qui soit !
+###  Plusieurs hauteurs de plan de travail : une tendance qui fait du bien !
+Selon les personnes qui utilisent une ou une autre partie du plan de travail, adaptez votre cuisine aux usages en installant différents niveaux de plan de travail.
+Un évier plus bas pour les enfants, une zone de préparation moyenne pour la cuisinière en chef, une zone de cuisson plus élevée pour le cuistot de la maison ! L’ergonomie a du bon et quelques centimètres, même pour une même personne mais selon les postes (zone de lavage plus haute que la zone de préparation), peuvent faire une vraie différence de confort.
+Les différences de hauteur en plan de travail ne sont pas qu’une tendance mais également une adaptation à nos modes de vie qui évoluent, même si leur esthétique est de plus en plus appréciée pour casser la monotonie architecturale des cuisines d’antan.
+###  Un plan de travail réglable en hauteur pour s’adapter à chacun
+La solution idéale bien sûr est un plan de travail qui s’adapte à chacun le moment voulu, qui se lève ou s’abaisse à l’envi ! Quelques cuisinistes haut-de-gamme commencent à proposer des plans de travail à hauteur modulable par action manuelle ou par motorisation, solution parfaite pour un îlot central par exemple qui se met à hauteur pour le repas également (hauteur pouvant varier de 75 à 120 cm) !
+###  Petites astuces pratiques
+La cuisine est déjà installée ou vous ne pouvez moduler la hauteur du plan de travail ? Pensez à un simple marchepied, ce petit accessoire pratique qui peut être de multiples hauteurs pour accueillir les différents usagers de la cuisine et ainsi positionner le plan de travail à une hauteur confortable pour chacun !
+_Astuce Lapeyre :_ lors de la conception de la cuisine, vous pouvez imaginer encastrer le marchepied dans la plinthe, et ne le déplier qu’au moment opportun.
+_Note Bene Lapeyre_ : outre la hauteur de votre plan de travail, n’hésitez pas à adapter également la profondeur de voter plan de travail à vos besoins… sans oublier qu’il vous faudra pouvoir atteindre le fond du plan donc la crédence sans devoir vous « coucher » sur le plateau !
+**Pour être bien dans sa cuisine, prenons du plaisir à y passer du temps ! Bien choisir la hauteur de votre plan de travail fait partie intégrante des nombreux critères que vous aurez à prendre en compte dans votre configuration… et pour choisir en connaissances de causes, venez nous rencontrer en magasin, nous nous ferons un plaisir de nous accouder avec vous sur [nos plans de travail](/plans-travail-CCN0091)**

@@ -1,0 +1,10 @@
+## Trouvez le portail extérieur qui vous va
+Pas de doute, [**le portail extérieur**](/portails-CCN0089) est votre carte de visite pour tous vos invités, mais aussi pour ceux qui passent devant chez vous. Pour choisir le portail extérieur à la hauteur de la déco de votre entrée de maison et qui vous représente, il faut tenir compte de l’endroit où vous vivez.
+Si vous habitez une rue passante, pensez à un portail plein qui décourage les regards inquisiteurs avec style : le [**portail coulissant Alu Napoli**](/portail-coulissant-aluminium-napoli-FPC2318911), [**Adaggio**](/portail-coulissant-aluminium-adaggio-FPC2317821), le portail battant Rimini ou, pour un rendu plus authentique le portail coulissant bois Castel.
+Si vous vivez loin des foules de la ville ou dans un endroit paisible, vous pouvez opter pour un portail ajouré tel que le portail battant alu Castelli ou un portail d’extérieur totalement ouvert comme le portail battant alu Arpeggio.
+Les portails aux soubassements d’un mètre ou plus représentent une solution intermédiaire élégante qui vous protège du regard des automobilistes, sans pour autant complètement obstruer votre vue.
+![desktop_EXTtendanceouintimite_portailadaggio_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020c138/desktop_EXTtendanceouintimite_portailadaggio_p1.jpg)
+##
+## Poussez le détail déco jusqu’à la clôture de jardin
+Une fois le portail de vos rêves acquis, il vous faut accorder le reste de votre cadre extérieur. Grâce à Lapeyre, vous pourrez coordonner votre clôture de jardin à votre portail d’extérieur. Soit avec des travées à poser sur vos murets, comme les travées Napoli ou Adaggio, soit avec un système de clôture de jardin à la carte, pour combiner plusieurs hauteurs, en pose au sol ou sur muret. C’est le cas de la clôture de jardin Dolomite, en alu, à hauteur variable, pour vous garantir une parfaite tranquillité.
+Vous pouvez aussi tout simplement créer une combinaison basée sur le même matériau : portail en bois et travées en bois ajourées ou pleines.

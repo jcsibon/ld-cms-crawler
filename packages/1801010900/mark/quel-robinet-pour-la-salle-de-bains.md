@@ -1,0 +1,10 @@
+## Le robinet de salle de bains : moderne ou rétro ?
+Si le style de votre salle de bain est plutôt classique, optez pour un mélangeur traditionnel comme l’élégant **[Charleston](/melangeur-lavabo-monotrou-charleston-FPC0022777)**.
+Pour donner un aspect plus contemporain à votre pièce, optez pour un mitigeur. Ses courbes modernes rondes ou carrées mettront en valeur votre lavabo ou votre espace bain. Il en existe pour tous les goûts et pour tous les budgets : du petit prix **[Saïgon](/mitigeur-lavabo-saigon-petit-modele-FPC1612470)** en passant par l’original Pura Vida . Avec une vasque à poser, vous pouvez associer des mitigeurs grands modèles ronds et carrés, comme avec le modèle Aura.
+![desktop_choisirstyledevotrerobinet_verisdigital_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002021c7/desktop_choisirstyledevotrerobinet_verisdigital_p1.jpg)
+## Un robinet mitigeur, synonyme de confort et sécurité
+Les mitigeurs, grâce à leur commande unique, offrent une simplicité d’utilisation incomparable. Leur levier permet de régler la température (de gauche à droite) et le débit de l’eau (de haut en bas) en un seul geste.
+Plus sophistiqué, le mitigeur thermostatique bain/douche composé de deux manettes (une pour la pression, l’autre pour la température) allie confort, avec le préréglage de température et sécurité, grâce à une butée à 38 °C.
+## Un mitigeur de bain ou de douche pour économiser de l'eau
+Vous êtes préoccupé par l’environnement et souhaitez réduire votre consommation ? Optez pour un robinet tel que le nouveau mitigeur **[Eurosmart cosmopolitain](/mitigeur-lavabo-eurosmart-cosmopolitain-petit-modele-FPC1221953)**. Ces modèles sont équipés d’un aérateur qui garantit la pression du débit en utilisant deux fois moins d’eau.
+Lapeyre vous guide pour choisir le mitigeur le plus adapté à vos besoins.

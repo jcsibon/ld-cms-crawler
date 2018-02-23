@@ -1,0 +1,11 @@
+## Four multifonction ou piano de cuisson : à chacun son type de cuisson
+Si vous êtes novice dans l’art de la **[cuisine](/cuisine-CCU0001)** et n’utilisez votre four que rarement, un four à convection naturelle vous ira parfaitement. C’est le **[four](/fours-CCN0101)** aux modes de cuisson le plus traditionnel.
+Pour une cuisine rapide, équipez-vous d’un [**four à micro-ondes**](/fours-micro-ondes-CCN0095), qui aujourd’hui s’enrichit de multiples possibilités, comme le grill.
+Si au contraire vous êtes expérimenté et utilisez souvent votre four, optez pour un four multifonctions qui vous permettra de varier les modes de cuisson.
+Il dispose de compléments comme les fonctions air brassé ou chaleur tournante qui garantissent une cuisson plus homogène. Sur différents modèles, comme le Compact Vapeur Siemens, vous aurez même la possibilité de cuisiner à la vapeur.
+Les passionnés craquent pour le [**piano de cuisson**](/pianos-cuisson-CCN0096), qui comporte une table de cuisson, un ou plusieurs fours et éventuellement un support pour wok, plancha ou grill.
+![desktop_lesfours_foursmultifonctionsiemens_p1](//statics.lapeyre.fr/img/contrib/2bdd4da3002048bc/desktop_lesfours_foursmultifonctionsiemens_p1.jpg)
+## Des fours électriques au nettoyage si facile
+N’hésitez pas à prendre en compte le niveau de confort à l’usage. Le four à ouverture tiroir, par exemple, vous permet de vérifier l’état de la cuisson sans avoir à sortir le plat ni à tenir la porte. Le four Pyro fonction de Siemens vous permet aussi de préparer vos plats à l’avance et de les garder au chaud jusqu’à l’heure du repas.
+En fonction de la fréquence d’utilisation du four, vous déterminez si vous avez besoin d’un modèle avec option de nettoyage automatique (four catalyse ou four pyrolyse).
+Et pour éviter les odeurs et la fumée, accompagnez-le d’une hotte de cuisine adaptée à votre intérieur ! La collection Electrolux propose par exemple des modèles Déco de plus ou moins grande taille : 45cm, 60/80cm, ou 90cm de largeur.

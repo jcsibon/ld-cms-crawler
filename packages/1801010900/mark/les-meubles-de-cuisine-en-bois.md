@@ -1,0 +1,12 @@
+## Des meubles de cuisine en bois, pas nécessairement rustiques !
+Les **[cuisines en bois Etoilées](/cuisine-CCU0001/meubles-modeles-cuisine-CCN0010)** Lapeyre vous proposent pas moins de 120 finitions : les surfaces laquées (**[Eyre](/cuisine-eyre-FPC200555)**, **[Tandem](/cuisine-tandem-FPC200548)**), mates, texturées (**[Stria](/cuisine-stria-FPC200559)**) ou nacrées (**[Platine](/cuisine-CCU0001/meubles-modeles-cuisine-CCN0010)**) habillent les essences les plus classiques.
+![desktop_leboisdansvotrecuisine_CUISplatinenoir_p1](//statics.lapeyre.fr/img/contrib/2bdd4da30020de11/desktop_leboisdansvotrecuisine_CUISplatinenoir_p1.jpg)
+##
+## Des meubles en bois pour une cuisine moderne
+Sciage, découpe, ponçage : le bois est prêt à tout endurer pour coller aux derniers canons de la décoration intérieure ! Les meubles de cuisine en bois se font tantôt fins et ciselés (vitrines **[Bistrot](/cuisine-CCU0001/meubles-modeles-cuisine-CCN0010)**, claustra et angles cassés **[Domaine](/cuisine-domaine-FPC200527)**, façade **[Saveur](/cuisine-saveur-FPC200531)**) ou déploient un [**plan de travail** **en bois**](/cuisines/plans-de-travail/bois-massif) et de larges encadrements en chêne ([**Fjord**](/cuisine-fjord-FPC200539)) ou bouleau ([**Origine**](/cuisine-origine-FPC200536)).
+## Votre cuisine moderne en mode « gain de place »
+Le bois se plie en quatre pour vous permettre de conquérir de précieux centimètres. C’est le cas des [**rangements bois en angle, coin et pan coupé**](/cuisines/meubles/meubles-contemporains/elements-bas/elements-bas-rangements-angle-coin-et-pan-coupe), des placards [**de faible profondeur**](/cuisines/meubles/meubles-contemporains/elements-bas/elements-bas-rangements-faible-profondeur) ou étroits ([**Espace saveurs**](/cuisines/meubles/meubles-contemporains/elements-bas/elements-bas-espace-saveurs)), des meubles [**double face**](/cuisines/meubles/meubles-contemporains/elements-bas/elements-bas-double-face), ou encore de la plinthe amovible qui masque… un escabeau !
+Ces articles peuvent vous intéresser :
+- [**Trouvez le meuble qui s’adapte à votre espace cuisine**](/c/magazine/pieces-maison/choisir-le-meuble-de-cuisine-adapte-a-votre-espace)
+- [**Une cuisine pleine d’accessoires essentiels**](/c/magazine/pieces-maison/ces-accessoires-de-cuisine-indispensables)
+- **[**Quel plan de travail choisir ?**](/c/magazine/pieces-maison/choisir-le-plan-de-travail-de-votre-cuisine)**

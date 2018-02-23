@@ -1,0 +1,10 @@
+## Un meuble de cuisine modulable
+Comme il est impossible d’adapter les ustensiles de **[cuisine](/cuisine-CCU0001)** aux rangements disponibles, faites plutôt l’inverse ! Le tiroir range casseroles est équipé de séparateurs qui s’ajustent à la taille de votre vaisselle et la calent pour éviter les chocs et les surprises à l’ouverture. De même, le range couverts modulable permet d’agencer le tiroir en fonction des couverts qui y sont disposés.
+![desktop_CUISpleineaccessoireessentiels_ecorcecendre_p1](//statics.lapeyre.fr/img/contrib/2bdd4da300204a49/desktop_CUISpleineaccessoireessentiels_ecorcecendre_p1.jpg)
+## Les tiroirs intégrés dans le plan de travail
+Glissez un fin tiroir sous votre four pour y loger tous ses ustensiles. Son astucieux double fond coulisse pour y entreposer les plats à gratin.
+Les tiroirs intégrés dans le **[plan de travail](/cuisine-CCU0001/credences-plans-travail-CCN0013/plans-travail-CCN0091)**[](/cuisine-CCU0001/credences-plans-travail-CCN0013/plans-travail-CCN0091)de votre espace cuisson s’ouvrent d’une simple pression de la main. Ils sont spécialement conçus pour héberger tous les couteaux et autres petits outils nécessaires à tout bon cuisinier.
+## Des astuces rangement pour chaque ustensile de cuisine
+Le range assiettes s’adapte à la taille de votre vaisselle pour transporter jusqu’à douze assiettes en une seule fois. Il se loge facilement dans n’importe quel [**meuble** **de cuisine**](/cuisine-CCU0001/meubles-modeles-cuisine-CCN0010)où ses patins antidérapants lui assurent une adhésion parfaite.
+Jetez et triez en un seul geste avec la poubelle Twin. Dotée de deux sceaux intérieurs, cette poubelle de cuisine s'actionne d'une simple pression sur la pédale et facilite le tri sélectif.
+Pour ranger des ustensiles ou des produits lourds dans les tiroirs et étagères, optez pour un système électrique : un mécanisme d’ouverture qui vous évite des tours de force inutiles.
